@@ -1,0 +1,17 @@
+- name: Iscriviti alla newsletter!
+  url:  "newsletter"
+  # url: "https://www.facebook.com/5loaves2fish.blog"
+
+- name: Libri da leggere
+  url: "libri"
+
+- name: Scrivici
+  url: "https://www.facebook.com/5pani2pesci"
+  # url:  "scrivici"
+  # url: "https://www.facebook.com/5loaves2fish.blog"
+
+#- name: Donazioni
+#  url: "https://donorbox.org/collabora-con-noi"
+
+- name: "Seguici su <i class='fa fa-instagram' aria-hidden='true'></i>"
+  url: "https://www.instagram.com/5pani2pesci"
