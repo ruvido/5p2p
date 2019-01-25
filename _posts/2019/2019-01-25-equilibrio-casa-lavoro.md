@@ -5,11 +5,10 @@ permalink: equilibrio-vita-privata-lavoro
 ---
 
 Trovare un equilibrio tra gli impegni lavorativi e la
-vita privata (casa/affetti) è impresa tutt'altro che semplice (amici freelance vi torna!? :D). E se da una parte credo profondamente che al centro della vita ci sia la necessità di vivere una vita affettiva piena e matura. Allo stesso tempo la velocità del mondo del lavoro è cambiata a tal punto che spesso gli equilibri vengono messi in ginocchio... e per me, è stato spesso così.
+vita privata (casa/affetti) è impresa tutt'altro che semplice (amici freelance vi torna!? 🦊). E se da una parte credo profondamente che al centro della vita ci sia la necessità di vivere una vita affettiva piena e matura. Allo stesso tempo la velocità del mondo del lavoro è cambiata a tal punto che spesso gli equilibri vengono messi in ginocchio... e per me, è stato spesso così.
 
-Lo dico (e mia moglie mi è testimone 🙈): per anni e anni ho lottato per raggiungere questo equilibrio. Mi sono dato regole, tempi, scadenze, sveglie e quant'altro... ma niente! Il meglio che sono riuscito a fare è stato rompermi una gamba, e sebbene questa sia [un'altra storia](https://5p2p.it/2013/04/12/quando-dio-ti-rompe-una-gamba.html), il fatto evidente è che trovare un giusto equilibrio tra famiglia e lavoro, vita privata ed impegni, amore e ambizioni è tutt'altro che scontato.
+Lo dico (e mia moglie mi è testimone 🙈): per anni e anni ho lottato per raggiungere questo equilibrio. Mi sono dato regole, tempi, scadenze, sveglie e quant'altro... ma niente! Il meglio che sono riuscito a fare è stato rompermi una gamba, ma questa è [un'altra storia](https://5p2p.it/2013/04/12/quando-dio-ti-rompe-una-gamba.html). Il fatto evidente è che trovare un giusto equilibrio tra famiglia e lavoro, vita privata ed impegni, amore e ambizioni è tutt'altro che scontato.
 
-È un equilibrio che non si può mai dare per scontato.
 Bisogna sempre stare all'erta, orecchie tese, per
 riadattare il proprio comportamento alle situazioni
 esterne. Infatti, basta una scadenza o un imprevisto
@@ -21,15 +20,14 @@ Nella mia personale esperienza quello che ho imparato è che
 responsabilità o vive nel mondo _freelance_). Infatti una
 regola rigida difficilmente è in grado di gestire
 l'imprevisto. Ciò che riesce a far fronte a situazioni non
-preventivate è l'avere un chiaro **ordine di priorità**: un
-ordine delle cose.
+preventivate è avere un chiaro **ordine di priorità**: una sorta di regola di vita.
 
 ## La vita ordinata
 
 Cioè: dipende da cosa metti al primo posto.
 
 La chiave qui è che l'ordine è ciò che definisce le priorità, e che permette di
-trovare -_appunto_- un equilibrio. L'ordine gestisce bene
+trovare _-appunto-_ un equilibrio. L'ordine gestisce bene
 l'imprevisto perché di fronte a qualcosa di non
 preventivato, avrai sempre **una bussola chiara** che ti dice
 cosa ha assolutamente bisogno della tua attenzione in quel momento. E qui
@@ -37,7 +35,11 @@ si trova anche tutta la chiave della questione: **quale
 è l'ordine delle tua vita**? Cosa ha maggiore importanza in
 scala assoluta?
 
-Mai viste quelle situazioni in cui il papà è sempre fuori, assorbito da mille impegni, con il ritornello di fondo che sì, è vero che non c'è mai, ma lui lo fa _per la famiglia_ (!). Scherziamo? Ve lo può dire mia moglie, ed insieme con lei un esercito di mogli di tutto il mondo e in tutte le lingue, che nulla è più importante di un marito presente e di un padre presente. (Stessa cosa vale per le mamme!)
+Mai viste quelle situazioni in cui il papà è sempre fuori, assorbito da mille impegni, con il ritornello di fondo che... sì, è vero che non c'è mai, ma lui lo fa _per la famiglia_ (!). 
+
+Scherziamo? 
+
+Ve lo può dire mia moglie, ed insieme con lei un esercito di mogli di tutto il mondo e in tutte le lingue, che nulla è più importante di un marito presente e di un padre presente. (Stessa cosa vale per le mamme!)
 
 Capisci bene allora che qui non è questione di trovare una qualche tecnica per migliorare l'equilibrio tra vita privata e lavoro, ma andare a fondo nella vita per capire cosa conta veramente per te: cosa è veramente importante.
 
@@ -59,7 +61,7 @@ normalmente dedicati alla famiglia, e il viceversa.
 
 La cosa straordinaria, ma che avevo sempre sottovalutato,
 è che la nostra propensionsione al lavoro o alle 
-relazioni non è affatto innata ma bensì dipende
+relazioni non è affatto innata, ma bensì dipende
 moltissimo dalla nostra storia. E cioè: non siamo
 noi che troviamo maggiore soddisfazione nel lavoro 
 perché ... _sono fatto così_. Ma piuttosto perché
@@ -75,11 +77,11 @@ di trovare l'equilibrio tra casa e lavoro.
 
 Il punto quindi è fare una scelta.
 
-Da lì, poi tutto viene di conseguenza.
+Da lì, tutto viene di conseguenza.
 
 ## È un cammino
 
-Prima di questa incredibile avventura di 5pani2pesci, ero professore di Fisica presso l'università di Friburgo. Ho lavorato nel mondo della ricerca per più di 10 anni e (cavoli!) se sono stato messo in crisi dal non riuscire a trovare un equilibrio tra lavoro e vita privata! 
+Prima di questa incredibile [avventura di 5pani2pesci](https://tour.5p2p.it), ero professore di Fisica presso l'università di Friburgo. [Ho lavorato nel mondo della ricerca](https://www.frias.uni-freiburg.de/en/people/fellows/current-fellows/rao) per più di 10 anni e (cavoli!) se sono stato messo in crisi dal non riuscire a trovare un equilibrio tra lavoro e vita privata! 
 
 Gli impegni e le cose da fare, intorno a me pareva mi risucchiasero ogni giorno in un vortice di cose che richiedevano costantemente la mia attenzione. E non solo questo. Proprio la mia testa era sempre assorbita da problematiche connesse al lavoro e facevo una fatica immensa a staccare la spina.
 
@@ -98,6 +100,12 @@ A questo punto, sta a noi accoglierlo ed incominciare a lavorare su noi stessi (
 Buon cammino!
 
 Fra
+
+PS> Se vuoi iniziare un cammino, ti aspettiamo ad uno dei nostri incontri che
+teniamo in giro per l'Italia. Ecco le date:
+[https://tour.5p2p.it](https://tour.5p2p.it)
+
+Ti aspettiamo!
 
 ## Altri articoli sul lavoro e l'amore ordinato
 
