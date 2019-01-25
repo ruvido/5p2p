@@ -1,0 +1,13 @@
+#!/bin/bash
+ANALYSIS=analysis.html
+cd ..
+cat << EOF > $ANALYSIS
+---
+layout: empty
+---
+{% for post in site.posts %}
+		{{post.title}} @ {{post.date | date: '%Y-%m-%d'}}@ {{post.author}}@ {{site.url}}{{post.url}}  @ {{post.path}}
+{% endfor %}
+EOF
+bundle exec jekyll b
+cat _site/$ANALYSIS | awk 'NF>0'
