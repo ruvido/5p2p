@@ -85,27 +85,25 @@ Prima di questa incredibile [avventura di 5pani2pesci](https://tour.5p2p.it), er
 
 Gli impegni e le cose da fare, intorno a me pareva mi risucchiasero ogni giorno in un vortice di cose che richiedevano costantemente la mia attenzione. E non solo questo. Proprio la mia testa era sempre assorbita da problematiche connesse al lavoro e facevo una fatica immensa a staccare la spina.
 
-Un fatto però è questo: mi era chiaro che il lavoro non poteva donarmi quella pienezza e quel desiderio di amore che abita nel mio cuore, che mi rende pien0 e mi conduce alla felicità. Per me questo **è un fatto**. Basta guardarci dentro, basta vedere le persone sul posto di lavoro, basta vedere i grandi "uomini di successo" (che magari intanto sono divorziati, hanno problemi con alcol o droghe ecc.) per capire che nel lavoro non c'è la risposta per la nostra felicità (ATTENZIONE: "troppo lavoro" è uno dei [nuclei di morte che distrugge una storia d'amore!](https://5p2p.it/ndm-troppo-lavoro)).
+Un fatto però è questo: mi era chiaro che il lavoro non poteva donarmi quella pienezza e quel desiderio di amore che abita nel mio cuore, che mi rende pieno e mi conduce alla felicità. Per me questo **è un fatto**. Basta guardarci dentro, basta vedere le persone sul posto di lavoro, basta vedere i grandi "uomini di successo" (che magari intanto sono divorziati, hanno problemi con alcol o droghe ecc.) per capire che nel lavoro non c'è la risposta per la nostra felicità (ATTENZIONE: "troppo lavoro" è uno dei [nuclei di morte che distrugge una storia d'amore!](https://5p2p.it/ndm-troppo-lavoro)).
 
-Allo stesso tempo, è chiaro che il lavoro è anche un grande mezzo di edificazione (leggi bene: un servizio!) per se stessi e la comunità. È fonte di sostentamento, nonchè il modo pratico in cui spesso diamo il nostro contributo al mondo. Un contributo che tuttavia può assorbire la maggior parte delle nostre energie fisiche e psichiche.
+Allo stesso tempo, è chiaro che il lavoro è anche un grande mezzo di edificazione (un servizio! 👍) per se stessi e la comunità. È fonte di sostentamento, nonchè il modo pratico in cui spesso diamo il nostro contributo al mondo. Un contributo che tuttavia può assorbire la maggior parte delle nostre energie fisiche e psichiche.
 
 La questione è seria e ne va della nostra felicità. 
 
 Con il tempo ho capito che non è tanto questione del lavoro che fai, ma di come il lavoro prende un posto all'interno della vita, in termini di priorità, soddisfazione e ambizioni personali.
 
-Lo ripeto è un cammino, ma la chiave è fare ordine nel proprio cuore. Se il lavoro è prioritario, o se non riusciamo a staccarci dal lavoro, o prende una parte troppo ampia della nostra vita, allora questo è un campanello d'allarme.
+Lo ripeto, è un cammino, ma la chiave è fare ordine nel proprio cuore. Se il lavoro è prioritario, o se non riusciamo a staccarci dal lavoro, o prende una parte troppo ampia della nostra vita, allora questo è un campanello d'allarme.
 
 A questo punto, sta a noi accoglierlo ed incominciare a lavorare su noi stessi (fare un cammino!) per fare ordine nel nostro cuore ed incominciare a vivere più pienamente nel progetto di Dio.
 
-Buon cammino!
+A lavoro!
 
 Fra
 
-PS> Se vuoi iniziare un cammino, ti aspettiamo ad uno dei nostri incontri che
-teniamo in giro per l'Italia. Ecco le date:
+**PS>** _Se vuoi iniziare un cammino, ti aspettiamo ad uno dei nostri incontri che
+teniamo in giro per l'Italia. Ecco le date:_
 [https://tour.5p2p.it](https://tour.5p2p.it)
-
-Ti aspettiamo!
 
 ## Altri articoli sul lavoro e l'amore ordinato
 
