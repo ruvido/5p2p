@@ -1,7 +1,7 @@
 ---
 title: Ma l'avete voluto?
 author: Alescanca
-image: ''
+image: "/uploads/ma-l-avete-voluto.jpg"
 permalink: ma-l-avete-voluto
 date: 2019-03-14 10:11:48 +0100
 
