@@ -63,7 +63,7 @@ Quindi per questo la domanda "L'avete voluto?" è sbagliata in sé. È impossibi
 
 So bene che toccare argomenti come la sessualitá, la contraccezione, l'apertura alla vita genero il putiferio. Sono pronta agli _insulti_ che stamperó e porteró con me alla prossima confessione cosí magari il mio parroco sará piú clemente. Vorrei peró precisare alcuni punti che molti non vedono l'ora di attaccare.
 
-####  L'apertura alla vita.
+#### L'apertura alla vita.
 
 Preciso che essere aperti alla vita _non vuol dire avere quindici figli_ o quelli che Dio ti manda. Non è questo quello che dice la chiesa. Per sapere cosa dice la chiesa devi leggere il *_Catechismo Della Chiesa Cattolica_ nella parte in cui si parla del _sesto comandamento_ e in particolare dove parla della **castitá per gli sposi** (parola sempre molto abusata e travisata, con un significato invece molto profondo e soprattutto _opposto_ a quello che si pensa). Il tuo parroco o la catechista del tuo gruppo puó dire che è irrealistico avere mille figli o, al contrario, che se vuoi vivere a pieno il matrimonio devi accogliere i figli che Dio ti manda senza tenere presente nulla. La veritá non la dico io e non la dice il parroco e neanche la catechista, la trovi sul Catechismo perché è quello il documento ufficiale della chiesa, il resto sono opinioni.
 

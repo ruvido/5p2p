@@ -126,7 +126,7 @@ a.no-decoration {
   }
 
   h4, .page-summary h3 {
-    // @extend .summary-font;
+    @extend .header-font;
     font-size: $mid-font-size;
     padding-top: $mid-font-size;
   }
@@ -176,4 +176,10 @@ p {
   @media (min-width: $tablet) {
     font-size: $mid-font-size;
   }
+}
+
+h4 {
+  @extend .header-font;
+  font-size: $mid-font-size;
+  padding-top: $mid-font-size;
 }
