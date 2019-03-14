@@ -5,7 +5,7 @@ image: ''
 date: 2019-03-14 10:11:48 +0100
 
 ---
-Ma l'avete voluto?
+## Ma l'avete voluto?
 
 Questa è la frase che chiunque ci incontra e intravede la mia panza esagerata ci fa.
 Ebbene sí, dopo anni di desideri, lotte intestine con me stessa, con Dio e con il mondo finalmente **siamo in attesa**!!!!!!
@@ -19,7 +19,7 @@ Chiaramente il maligno ci gioca sempre su queste cose, ma è altrettanto vero ch
 Da lí mi sono messa in cammino e sono passata dall'alternanza del **senso di colpa** e dal raccontarmela a mettere le mani in questa cosa delicata e profonda della mia storia e della mia vocazione. Per anni me la sono raccontata, uh *quanto me la sono raccontata*! Insieme a questo, a giorni alterni, mi flaggellavo a sensi di colpa fino a quando finalmente con la **preghiera**, con la condivisione profonda con Francesco, cambiando il mio sguardo su me stessa e con le amiche belle vicino a me qualcosa è cambiato. Ho visto che *ognuno di noi ha qualcosa di grosso su cui fa fatica*: chi non riesce a fare il passo di sposarsi, chi non riesce neanche a creare relazioni stabili, chi fa fatica a gestire la suocera e chi sta in salita nell'aprirsi alla vita.
 
 
-##Le reazioni
+## Le reazioni
 
 
 Oggi sono qui, dopo sei anni da quella confessione, a scrivere questo post per dire *gliel'ho fatta pure io*!!! La mia gioia solo all'idea di un figlio mi faceva venire male alle guance per il troppo sorriso nonostante la paura che qualcosa vada male e tutti i pipponi mentali da mamma rimangono di sottofondo costantemente (giusto per essere chiari!).
@@ -33,7 +33,7 @@ Alla notizia del **terzo figlio** le domande iniziano a diventare quasi irrisori
 Ma alla notizia del **quarto figlio** tutto si fa esplicito: ***"Ma lo avete voluto????"***. Punto. Non ci sono altre domande, al massimo qualcuno aggiunge *"Meglio un figlio che una malattia"* ovvero meglio che vi sia capitato un figlio nella vita che una malattia perché *"non sarete mica cosí scemi da averlo voluto"* è sottinteso.
 
 
-##C'è una menzogna di mezzo
+## C'è una menzogna di mezzo
 
 La domanda mi suona sempre male ogni volta che la sento. Non riuscivo a capire perché. È chiaro che le persone che ce la pongono, non conoscendoci tutte in maniera profonda, non sanno come la pensiamo riguardo alla nostra visione di *famiglia come vocazione*. Tutto questo lo capisco e peró non mi suona lo stesso… Ci ho pensato un sacco: *ma cos'ha sta domanda perché mi suona tanto male?* 
 
@@ -64,29 +64,26 @@ Insomma **ci hanno mentito quando ci hanno fatto credere in tutte le salse che p
 
 Quindi per questo la domanda "L'avete voluto?" è sbagliata in sé. È impossibile non rendersi conto che facendo l'amore con qualcuno c'è la possibilitá, seppur volendo ridotta da un contraccettivo, di un figlio. Non esiste per nessuno "non volerlo" solo per uno sprovveduto che non si rende conto di questo e dissocia le due cose.
 
-##Note fondamentali
+## Note fondamentali
 
 So bene che toccare argomenti come la sessualitá, la contraccezione, l'apertura alla vita genero il putiferio. Sono pronta agli *insulti* che stamperó e porteró con me alla prossima confessione cosí magari il mio parroco sará piú clemente. Vorrei peró precisare alcuni punti che molti non vedono l'ora di attaccare.
 
-###- L'apertura alla vita.
+### - L'apertura alla vita.
 Preciso che essere aperti alla vita *non vuol dire avere quindici figli* o quelli che Dio ti manda. Non è questo quello che dice la chiesa. Per sapere cosa dice la chiesa devi leggere il **Catechismo Della Chiesa Cattolica* nella parte in cui si parla del *sesto comandamento* e in particolare dove parla della **castitá per gli sposi** (parola sempre molto abusata e travisata, con un significato invece molto profondo e soprattutto *opposto* a quello che si pensa). Il tuo parroco o la catechista del tuo gruppo puó dire che è irrealistico avere mille figli o, al contrario, che se vuoi vivere a pieno il matrimonio devi accogliere i figli che Dio ti manda senza tenere presente nulla. La veritá non la dico io e non la dice il parroco e neanche la catechista, la trovi sul Catechismo perché è quello il documento ufficiale della chiesa, il resto sono opinioni.
 
 Quello che so io è che **è un cammino** e non ci sono mai le *regolette* da applicare tipo stickers di Spider Man. Dio non ci mette mai nei quadratini e ci fa diventare tanti bei soldatini arruolati. Insomma diffidate dalle imitazioni di cristiani qualunquisti perché sono di basso livello. Leggete da soli il Catechismo e informatevi come si deve. Non vi lanciate in critiche prima di aver letto o, se proprio volete, scrivetele nei commenti che mi servono per la prossima confessione.
 
-###- La contraccezione
+### - La contraccezione
 Quello che ho scritto riguardo alla contraccezione non ha nulla a che vedere con la fede, ma è solo un *puro ragionamento* guardando dati statistici considerati validi a livello mondiale (non li ho trovati sul sito di Paperino o su qualche sito cattolico bigotto contro la contraccezione!). Personalmente so che anche i piú bigottoni si trovano prima o poi di fronte alla scelta obbligata o quasi di contraccettivi (puó succedere), quindi c'è poco da fare i superiori.
 
-###- La sessualitá
+### - La sessualitá
 Credo e ribadisco che siamo cresciuti con la menzogna che si potesse separare dalla procreazione in maniera assoluta. Credo anche che di questo se ne parli poco e in piú penso che non ho mai sentito parlare di sessualitá in maniera cosí bella e profondamente vera come nella chiesa (in questo caso potete prendermi per pazza, ma io ho questa esperienza). Se poi parliamo di *castitá* ancora meglio! Sul Catechismo la definizione di **castitá è: dono reciproco, totale e illimitato nel tempo di sé** che va vissuto in diverse modalitá a seconda dello stato di vita in cui ci troviamo (*fidanzati, consacrati, sposi*). Spesso la castitá viene confusa con *l'astinenza*, ma quest'ultima è solo la forma di vivere la castitá per i non sposati. Insomma c'è una bellezza incredibile da scoprire, ma purtroppo parliamo di queste cose sempre con tanta ignoranza e superficilaitá. La chiesa, a mio parere, ne parla in maniera molto profonda e con una bellezza di cui non se ne puó fare proprio a meno. Trovo che vivere la castitá nel fidanzamento e nel matrimonio dia spazio alla massima intimitá. Non a caso le persone che conosco che dopo tanti anni di matrimonio ancora si corteggiano, si cercano, non prendono impegni per quelle sere in cui si puó fare l'amore sono proprio coppie che usano i metodi naturali. Non so se è un caso o solo la mia esperienza, ma di gente sposata ne incontriamo davvero tanta sia atea che credente.
 
 
-##Lo volete proprio sapere?
+## Lo volete proprio sapere?
 
 Comunque, se proprio lo volete sapere, sí, lo abbiamo proprio voluto perché oltre la paura di una vita che arriva con tutto il suo mondo da conoscere, non c'è cosa che ci fa piú gioire che questa. Siamo *pazzi*, lo sappiamo, è la cosa di cui siamo piú coscienti, ma non tanto perché aspettiamo il quarto figlio o perché abbiamo lasciato un lavoro da professore universitario per dedicarci a 5pani2pesci, ma perché la motivazione di tutto questo è che seguiamo **Gesú Cristo** che crediamo essere Figlio di Dio e salvatore del mondo. Per questo siamo pazzi. Gesú Cristo, d'altronde, non era uno poi tanto normale e non faceva cose poi tanto normali!
 Certo che abbiamo *tante paure* fra cui quella piú reale e che si ripete sempre è che a casa staremo stretti, poi seguono le paure serie del tipo *"e se poi è malato?"*, a cui si aggiungono quelle puramente da mamma come *"nooo, mi tocca ricominciare con le pappe e non avró un attimo di tregua quando dovremo guardarlo a vista nella fase tocco tutto e faccio i migliori guai"*.
 
 E poi nel nostro caso la battuta *"Ma non avete la televisione"* ci sta tutta perché non ce l'abbiamo e non intendiamo avercela e consigliamo di seguire l'esempio.
 Io nel frattempo mi preparo alla fase che tutte le donne amano, ovvero l'unica in cui sei felicemente obesa e fiera di esserlo. L'unico problema che la scatola dei miei vestiti premaman è un po' *sui generis* perché le ultime gravidanze le ho fatte all'estero fra Francia e Germania quindi ho maglioni fuxia con le le maniche a tre quarti bombate oppure cose che in Italia neanche mia nonna si metterebbe in campagna per raccogliere l'insalata. Se mi vedete vestita strana non è per via dell'ormone, ma per i vestiti a disposizione.
-
-
-
