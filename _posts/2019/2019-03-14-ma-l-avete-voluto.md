@@ -63,17 +63,17 @@ Quindi per questo la domanda "L'avete voluto?" è sbagliata in sé. È impossibi
 
 So bene che toccare argomenti come la sessualitá, la contraccezione, l'apertura alla vita genero il putiferio. Sono pronta agli _insulti_ che stamperó e porteró con me alla prossima confessione cosí magari il mio parroco sará piú clemente. Vorrei peró precisare alcuni punti che molti non vedono l'ora di attaccare.
 
-### - L'apertura alla vita.
+####  L'apertura alla vita.
 
 Preciso che essere aperti alla vita _non vuol dire avere quindici figli_ o quelli che Dio ti manda. Non è questo quello che dice la chiesa. Per sapere cosa dice la chiesa devi leggere il *_Catechismo Della Chiesa Cattolica_ nella parte in cui si parla del _sesto comandamento_ e in particolare dove parla della **castitá per gli sposi** (parola sempre molto abusata e travisata, con un significato invece molto profondo e soprattutto _opposto_ a quello che si pensa). Il tuo parroco o la catechista del tuo gruppo puó dire che è irrealistico avere mille figli o, al contrario, che se vuoi vivere a pieno il matrimonio devi accogliere i figli che Dio ti manda senza tenere presente nulla. La veritá non la dico io e non la dice il parroco e neanche la catechista, la trovi sul Catechismo perché è quello il documento ufficiale della chiesa, il resto sono opinioni.
 
 Quello che so io è che **è un cammino** e non ci sono mai le _regolette_ da applicare tipo stickers di Spider Man. Dio non ci mette mai nei quadratini e ci fa diventare tanti bei soldatini arruolati. Insomma diffidate dalle imitazioni di cristiani qualunquisti perché sono di basso livello. Leggete da soli il Catechismo e informatevi come si deve. Non vi lanciate in critiche prima di aver letto o, se proprio volete, scrivetele nei commenti che mi servono per la prossima confessione.
 
-### - La contraccezione
+####  La contraccezione
 
 Quello che ho scritto riguardo alla contraccezione non ha nulla a che vedere con la fede, ma è solo un _puro ragionamento_ guardando dati statistici considerati validi a livello mondiale (non li ho trovati sul sito di Paperino o su qualche sito cattolico bigotto contro la contraccezione!). Personalmente so che anche i piú bigottoni si trovano prima o poi di fronte alla scelta obbligata o quasi di contraccettivi (puó succedere), quindi c'è poco da fare i superiori.
 
-### - La sessualitá
+####  La sessualitá
 
 Credo e ribadisco che siamo cresciuti con la menzogna che si potesse separare dalla procreazione in maniera assoluta. Credo anche che di questo se ne parli poco e in piú penso che non ho mai sentito parlare di sessualitá in maniera cosí bella e profondamente vera come nella chiesa (in questo caso potete prendermi per pazza, ma io ho questa esperienza). Se poi parliamo di _castitá_ ancora meglio! Sul Catechismo la definizione di **castitá è: dono reciproco, totale e illimitato nel tempo di sé** che va vissuto in diverse modalitá a seconda dello stato di vita in cui ci troviamo (_fidanzati, consacrati, sposi_). Spesso la castitá viene confusa con _l'astinenza_, ma quest'ultima è solo la forma di vivere la castitá per i non sposati. Insomma c'è una bellezza incredibile da scoprire, ma purtroppo parliamo di queste cose sempre con tanta ignoranza e superficilaitá. La chiesa, a mio parere, ne parla in maniera molto profonda e con una bellezza di cui non se ne puó fare proprio a meno. Trovo che vivere la castitá nel fidanzamento e nel matrimonio dia spazio alla massima intimitá. Non a caso le persone che conosco che dopo tanti anni di matrimonio ancora si corteggiano, si cercano, non prendono impegni per quelle sere in cui si puó fare l'amore sono proprio coppie che usano i metodi naturali. Non so se è un caso o solo la mia esperienza, ma di gente sposata ne incontriamo davvero tanta sia atea che credente.
 
