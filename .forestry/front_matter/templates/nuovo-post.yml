@@ -1,7 +1,6 @@
 ---
 label: Nuovo post!
 hide_body: false
-is_partial: false
 fields:
 - name: title
   label: Title
@@ -29,3 +28,5 @@ fields:
   default: ''
   config:
     required: false
+pages:
+- _posts/2019/ma-l-avete-voluto.md
