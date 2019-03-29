@@ -12,9 +12,11 @@ Abbiamo l'impressione che non ci siano persone che non siano alla ricerca del pi
 
 Abbiamo appena finito il Tour girando tutta Italia e non solo. Alla fine di ogni corso ci viene sempre posta la domanda sul **piacere erotico**. La cosa che piú ci sorprende è che ci sta tantissima confusione su tutto quello che riguarda la sessualitá soprattutto nel fidanzamento. Abbiamo incontrato tre **3 tipi di persone**:
 
-* quelle che non sanno cosa sia la castitá e non ne hanno mai sentito parlare; 
-* quelle che ne hanno sentito parlare, ma non hanno capito realmente a cosa serve; 
-* quelle che usano la castitá come silenzio di copertura, che hanno il corpo in stato reattivo e che quindi usano la castitá per coprire una difficoltá ad entrare in intimitá.
+\- quelle che non sanno cosa sia la castitá e non ne hanno mai sentito parlare; 
+
+\- quelle che ne hanno sentito parlare, ma non hanno capito realmente a cosa serve;
+
+\- quelle che usano la castitá come silenzio di copertura, che hanno il corpo in stato reattivo e che quindi usano la castitá per coprire una difficoltá ad entrare in intimitá.
 
 ## Che cos'è la castitá?
 
