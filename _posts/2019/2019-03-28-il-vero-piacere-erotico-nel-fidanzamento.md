@@ -1,7 +1,7 @@
 ---
 title: Il vero piacere erotico nel fidanzamento
 author: 'Alescanca  e Ruvido '
-image: ''
+image: "/uploads/il-vero-piacere-erotico-nel-fidanzamento.jpg"
 permalink: il-vero-piacere-erotico-nel-fidanzamento
 date: 2019-03-28 13:27:14 +0100
 
