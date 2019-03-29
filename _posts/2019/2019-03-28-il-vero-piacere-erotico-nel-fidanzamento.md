@@ -10,9 +10,10 @@ Come si fa a provare il vero piacere erotico? Cosa dirá mai la chiesa di questa
 Abbiamo l'impressione che non ci siano persone che non siano alla ricerca del piacere. Beh, in effetti, Platone direbbe subito che l'eros è proprio quella forza interiore che ognuno di noi ha verso il buono, il bello e il vero. Freud aggiungerebbe che l'erotismo è quell'impulso fondamentale che muove l'uomo verso la ricerca del piacere. Insomma fin qui tutti d'accordo, ma nella pratica che vuol dire?
 
 Abbiamo appena finito il Tour girando tutta Italia e non solo. Alla fine di ogni corso ci viene sempre posta la domanda sul **piacere erotico**. La cosa che piú ci sorprende è che ci sta tantissima confusione su tutto quello che riguarda la sessualitá soprattutto nel fidanzamento. Abbiamo incontrato tre **3 tipi di persone**:
-quelle che non sanno cosa sia la castitá e non ne hanno mai sentito parlare;
-quelle che ne hanno sentito parlare, ma non hanno capito realmente a cosa serve;
-quelle che usano la castitá come silenzio di copertura, che hanno il corpo in stato reattivo e che quindi usano la castitá per coprire una difficoltá ad entrare in intimitá.
+
+* quelle che non sanno cosa sia la castitá e non ne hanno mai sentito parlare; 
+* quelle che ne hanno sentito parlare, ma non hanno capito realmente a cosa serve; 
+* quelle che usano la castitá come silenzio di copertura, che hanno il corpo in stato reattivo e che quindi usano la castitá per coprire una difficoltá ad entrare in intimitá.
 
 ## Che cos'è la castitá?
 
@@ -53,9 +54,13 @@ Ma perché fasciarsi la testa? Perchè non fare semplicemente quel che dice il c
 La risposta è nell'indovinello: il fine è mettere chiarezza nella relazione, purezza, limpidezza (tutti sinonimi di castitá). Faccio brevemente un elenco:
 
 **Con la castità vengono eliminati i doppi messaggi**: con il rapporto sessuale dico con il corpo che sono **tutto** tuo, mentre cinque minuti dopo andiamo a mangiare la pizza e ognuno paga per sè. Con il corpo dico _ti appartengo_ mentre nella vita quotidiana ognuno bada a se stesso. Da fidanzati, non ti sembrerebbe assurdo mettersi sulle spalle un mutuo insieme, aprirsi un'attività insieme, comprarsi una macchina insieme? La domanda da farsi è: perché non condividiamo i soldi ma il corpo invece sí? Sono piú importanti i soldi o il mio corpo?
+
 **La castità mette chiarezza**: ogni coppia ingarbugliata che incontriamo, nel momento in cui fanno entrare la castitá nella loro relazione, automagicamente tutti i nodi vengono al pettine, tutte le situazioni iniziano a chiamarsi per nome. Tutto diventa limpido (--> casto). Provare per credere.
+
 **La castità ti fa puntare in alto**: con la castitá si vive una forma cosí alta di rispetto per l'altra persona che mette la relazione ad un livello molto serio, importante, elevato, altissimo. L'altro è cosí prezioso per me che devo fare un cammino insieme per poterlo ricevere in dono e per poter decidere fino in fondo se voglio donarmi completamente. È il contrario di darsi per scontati. Donarsi è una cosa seria! Se vuoi provare il vero _piacere sessuale_ devi creare intimitá vera, elevatissima, altrimenti è solo appagamento fisico di un _bisogno_, ma il piacere vero te lo sogni!
+
 **La castità amplifica tutti i canali di comunicazione**: il linguaggio del corpo è il canale di comunicazione piú forte che ci sia; fai l'amore con la tua ragazza e poi non avete piú niente da dirvi perché vi siete detti tutto nell'atto sessuale, mai successo? La castitá aiuta a parlare il linguaggio della tenerezza, dello sguardo, ti obbliga a risolvere i problemi parlando fino alla fine, ti costringe all'ascolto. Spesso invece si esce insieme, una volta si parla, un'altra si litiga e un'altra ancora si va a letto insieme, ma poi le situazioni non si risolvono fino in fondo.
+
 **La castità dona libertá**: non crea quel legame fortissimo che solo il corpo sa fare. Hai presente quando hai lasciato quel ragazzo/a con cui c'eri andato a letto insieme? Difficilissimo, una parte di te si rompe e vivi quasi un tradimento! Ti senti che le hai lasciato una parte di te ed in parte è proprio cosí; una parte di te che era troppo intima, delicata, un dono sproporzionato che è esclusivo solo per la donna o l'uomo della tua vita.
 
 Una domanda che spesso viene fuori sulla castità riguarda il _come viverla_, cioè cosa è lecito fare, cosa non è lecito, **cosa è** **permesso**. Secondo me questo punto di vista è sbagliato e ci distoglie da quello che è il fine primo della castità, e cioè il rispetto, il dono totale di se stessi, la trasparenza e la verità del rapporto, il puntare in alto per raggiungere il vero piacere sessuale.
