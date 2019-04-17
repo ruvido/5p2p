@@ -90,12 +90,7 @@ Sembra strano, ma per me la preghiera è piú che altro una lotta con Dio. È ve
 
 Buon triduo a tutti voi!
 
-P.S. 
+PS> Abbiamo scritto una guida pratica per vivere questo tempo giorno per giorno
 
-Per altri articoli per vivere a pieno questi giorni:
+[Triduo pasquale, il week end della grazia](https://5p2p.it/triduo-pasquale)
 
-[Triduo pasquale, il week end della grazia\]([https://5p2p.it/triduo-pasquale](https://5p2p.it/triduo-pasquale "https://5p2p.it/triduo-pasquale"))
-
-[La mia conversione\]([https://5p2p.it/2013/10/29/la-mia-conversione.html](https://5p2p.it/2013/10/29/la-mia-conversione.html "https://5p2p.it/2013/10/29/la-mia-conversione.html"))
-
-[La potenza della confessione\]([https://5p2p.it/2015/03/30/la-potenza-della-confessione.html](https://5p2p.it/2015/03/30/la-potenza-della-confessione.html "https://5p2p.it/2015/03/30/la-potenza-della-confessione.html"))
