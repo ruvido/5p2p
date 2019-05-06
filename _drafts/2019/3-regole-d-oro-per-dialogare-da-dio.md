@@ -1,7 +1,8 @@
 ---
 title: 3 regole d'oro per dialogare da Dio
 author: Alescanca
-image: ''
+image: "/uploads/3 regole d'oro per dialogare.jpg"
+permalink: 3-regole-doro-per-dialogare-da-dio
 
 ---
 Non si sa quante volte ho sentito parlare dell'importanza del dialogo nella coppia. _"Se c'é dialogo c'è tutto"_. Ma da dove nasce questo dialogo, cosa dobbiamo dirci e soprattutto come. Ci sono regole o l'altro mi deve capire al volo altrimenti non siamo fatti per stare insieme? Parlare senza parole poi…
