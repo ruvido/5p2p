@@ -119,7 +119,7 @@ Saper dialogare crea intimitá, unione profonda, condivisione vera. Quando l'alt
 
 Non dimenticate che il punto da tenere ben presente è che siamo diversi e parliamo lingue diverse. Lo Spirito Santo dona la grazia di capirci!! Bisogna sempre chiederla. Ogni volta, prima di parlare con qualcuno, prima di fare un incontro, prima di fare una telefonata con una persona che ha difficoltá, ogni volta prego e preghiamo questa preghiera allo Spirito Santo di Santa Caterina da Siena
 
-_Spirito Santo,
+*Spirito Santo,
 
 vieni nel mio cuore
 
@@ -143,4 +143,4 @@ Cristo amore,
 
 Cristo amore,
 
-Cristo amore._
+Cristo amore.*
