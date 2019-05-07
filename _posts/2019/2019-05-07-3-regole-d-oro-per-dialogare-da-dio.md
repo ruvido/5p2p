@@ -1,8 +1,8 @@
 ---
-title: 3 regole d'oro per dialogare da Dio
+title: Le 3 regole d'oro per dialogare da Dio
 author: Alescanca
 image: "/uploads/3 regole d'oro per dialogare.jpg"
-permalink: 3-regole-doro-per-dialogare-da-dio
+permalink: le-3-regole-doro-per-dialogare-da-dio
 
 ---
 Non si sa quante volte ho sentito parlare dell'importanza del dialogo nella coppia. _"Se c'é dialogo c'è tutto"_. Ma da dove nasce questo dialogo, cosa dobbiamo dirci e soprattutto come. Ci sono regole o l'altro mi deve capire al volo altrimenti non siamo fatti per stare insieme? Parlare senza parole poi…
@@ -36,19 +36,19 @@ Dice il Ruvido che ci sono tre tipi di persone:
 Il primo tipo di dialogo potrebbe essere interessante se ci sono le elezioni in corso o, in altri casi, è solo vuoto, non utile alla relazione. Il secondo tipo di dialogo approfondisce idee, ma è ancora un dialogo esterno alla relazione. Parli di te ma non in maniera intima. Parli di "fare" qualcosa o di cosa vorresti fare. Ma solo quando parli di te, della tua interioritá e dei tuoi sentimenti, crei relazioni profonde.
 **Parlare di sé**. Questo è il punto. Solo quando parlo di me creo intimitá. Questo è il must.
 
-## 3 Regole del dialogo
+## Le 3 regole del dialogo
 
 Ci sono delle **regole ben precise per dialogare**. L'esperienza insegna e la psicologia aiuta, tenendo presente che la sapienza di Dio lo ha detto ennemila anni fa.
 
-### 1.Eliminare il giudizio
+#### Eliminare il giudizio
 
-Di solito le nostre discussione iniziano con _"tu sei cosí, tu qua, tu lá"_ e giú di li a vomitarci addosso veleno e a tirarci i piatti in testa (poveri i nostri vicini!). Succede questo perché quando io parto con un giudizio ("tu sei cosí") metto l'altro nella disposizione di difendersi che quindi dirá _"Iooo!!! Tu sei cosí!! altroché! Faccio cosí perché tu rompi continuamente"_ e si continua a inoltranza per ore e giorni. Questo modo di comunicare non funziona perché non comunica nulla se non il mio fastidio per il fatto che sei diverso da me e per questo ti menerei.
+Prima regola. Di solito le nostre discussione iniziano con _"tu sei cosí, tu qua, tu lá"_ e giú di li a vomitarci addosso veleno e a tirarci i piatti in testa (poveri i nostri vicini!). Succede questo perché quando io parto con un giudizio ("tu sei cosí") metto l'altro nella disposizione di difendersi che quindi dirá _"Iooo!!! Tu sei cosí!! altroché! Faccio cosí perché tu rompi continuamente"_ e si continua a inoltranza per ore e giorni. Questo modo di comunicare non funziona perché non comunica nulla se non il mio fastidio per il fatto che sei diverso da me e per questo ti menerei.
 
 Vorrei solo che fosse uguale a me e capisse i miei bisogni con la forza del pensiero… dai! Non capisco proprio come faccia a non capirlo! Le mie amiche mi capiscono, è cosí chiaro anche per loro, come fa a non esserlo per lui?? … forse, e dico forse, hai dimenticato che di fronte a te hai un uomo che è quindi, per natura stessa, diverso da te e non capisce. Non puó proprio capire. Non ci arriva e non è tutta colpa sua. Come noi donne non possiamo proprio capire che rinuncia sia non andare in bici per 90 km sotto il sole invece di godersi un libro sotto l'ombrellone in riva al mare tutto il giorno, cosí gli uomini non capiscono perché è vitale per noi spendere del tempo per avere la casa pulita.
 
-### 2.Non interpretare
+#### Non interpretare
 
-Per cambiare registro bisogna parlare di sé. Solo in questo modo si elimina il giudizio ("tu sei cosí"), si elimina l'interpretare l'altro ("tu fai questo perché vuoi ottenere questo o perché sei come tuo padre") e si apre il cuore. Di solito diciamo:
+Seconda regola. Per cambiare registro bisogna parlare di sé. Solo in questo modo si elimina il giudizio ("tu sei cosí"), si elimina l'interpretare l'altro ("tu fai questo perché vuoi ottenere questo o perché sei come tuo padre") e si apre il cuore. Di solito diciamo:
 
 \- sei il solito rompi scatole che vuole sempre cambiare tutto e mettere in discussione tutto; pure con la libreria devi rompere! Tu non la vuoi montare non perché il truciolato ha ceduto dopo l'ennesimo trasloco, ma perché vuoi fare sempre a modo tuo"
 
@@ -69,9 +69,9 @@ A dire il vero di solito rimaniamo senza libreria dopo un trasloco per almeno ot
 
 Vi evito tutto il resto del litigio durato sei mesi per una stupida libreria perché da Natale siamo passati all'argomento "divano" dove in cinque non ci entriamo da un pezzo e per quello a sei posti non ci accordiamo su come metterlo… lasciamo stare, stavolta non ho neanche scuse nostalgiche di qualche tipo, solo non voglio rinunciare alle cassettiere (tutto non ci entra!) con i frontali sbilenchi che non posso aprire se no cascano… ma io ci tengo, ci tenevo i vestitini di Samuele appena nato. Chiaramente ho fatto esempi semplici su punti superficiali (e litighiamo almeno sei mesi a riguardo!), ma per le cose piú profonde poi sono cavoli amari veramente.
 
-### 3.Parlare di sé
+#### Parlare di sé
 
-Insomma se io parto con il _"tu"_ l'altro si mette sulla difensiva e non puó che contrattaccare. Se invece io **parlo di me**, di cosa mi piace, mi interessa, come vorrei realizzare quella cosa, allora l'altro si mette in una condizione di ascolto e mi accoglie. Questo non vuol dire che la pensa come me e mi accontenterá, ma che almeno possiamo parlare e non iniziare la solita guerra.
+Terza regola. Insomma se io parto con il _"tu"_ l'altro si mette sulla difensiva e non puó che contrattaccare. Se invece io **parlo di me**, di cosa mi piace, mi interessa, come vorrei realizzare quella cosa, allora l'altro si mette in una condizione di ascolto e mi accoglie. Questo non vuol dire che la pensa come me e mi accontenterá, ma che almeno possiamo parlare e non iniziare la solita guerra.
 
 Inoltre quando parlo di me **non interpreto** nessuno. Non sappiamo mai perché l'altro fa quella cosa e perché. Quando diciamo _"Sei come tuo padre! Alzi la voce per sentirti piú forte e avere ragione"_ stiamo interpretando e giudicando. L'altro puó dire che invece alza la voce perché è il suo modo per esprimere in maniera non dannosa la sua rabbia perché altrimenti spaccherebbe il mondo dopo il litigio che c'è stato anche la scorsa settimana sullo stesso argomento. Sentirsi interpretato è sempre irritante e maldispone. Diverso è dire _"quando alzi la voce mi fa soffrire perché tocchi delle note dolenti della mia storia"_. In quest'altro modo non c'è nessun giudizio e nessuna interpretazione, ma parlo di me. Da questo si puó aprire un dialogo sul modo di relazionarsi con l'altro, le sue ferite e il modo di reagire alle cose irritanti fino a come gestire la rabbia. Insomma, tutta un'altra canzone.
 
