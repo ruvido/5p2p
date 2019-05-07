@@ -109,7 +109,7 @@ Questo vale per tutte le relazioni uomo-donna. Vale anche per tutte le relazioni
 
 ## Dialogo senza parole
 
-Imparare a dialogare è importante perché ci mette in relazione. Senza questo di che parliamo?! Quando dico dialogo non voglio dire solo quello verbale, anzi vi dó un suggerimento dal quale partire se siete messi proprio male come succede spesso a noi. Quando con le parole, usando tutti gli accorgimenti che ho scritto, comunque non funziona perché si è creata una spaccatura troppo grande e anche l'aria che respiro fa male all'altro, allora passate al dialogo non verbale. Abbandonate il campo del _"devi capire che"_ e parlate senza parole, solo usando **la tenerezza** ovvero il corpo (questo si chiama \[**castitá**\](https://www.youtube.com/watch?v=sTVGDsqkiAg&t=2s… ma ve lo spiego un'altra volta)). Prendetevi per mano, abbracciatevi. Non parlate se non riuscite a farlo senza litigare. Dite: _"se parliamo adesso ci scanniamo come al solito. Mi sento tanto lontana da te e ferita, desidero tanto abbracciarti, ti va?"_ oppure _"vedo che non riusciamo a parlare in nessun modo, ricominciamo facendo una passeggiata mano nella mano e basta?"_. Usate la tenerezza, gesti semplici e mai ambigui: se fate l'amore rischiate di fare danni e creare uno squilibrio che non vi permetterá di risolvere quelle incomprensioni, ma iniziate dall'usare tenerezza, dolcezza, gesti semplici, piccoli.
+Imparare a dialogare è importante perché ci mette in relazione. Senza questo di che parliamo?! Quando dico dialogo non voglio dire solo quello verbale, anzi vi dó un suggerimento dal quale partire se siete messi proprio male come succede spesso a noi. Quando con le parole, usando tutti gli accorgimenti che ho scritto, comunque non funziona perché si è creata una spaccatura troppo grande e anche l'aria che respiro fa male all'altro, allora passate al dialogo non verbale. Abbandonate il campo del _"devi capire che"_ e parlate senza parole, solo usando **la tenerezza** ovvero il corpo (questo si chiama [**castitá**](https://www.youtube.com/watch?v=sTVGDsqkiAg&t=2s… ma ve lo spiego un'altra volta)). Prendetevi per mano, abbracciatevi. Non parlate se non riuscite a farlo senza litigare. Dite: _"se parliamo adesso ci scanniamo come al solito. Mi sento tanto lontana da te e ferita, desidero tanto abbracciarti, ti va?"_ oppure _"vedo che non riusciamo a parlare in nessun modo, ricominciamo facendo una passeggiata mano nella mano e basta?"_. Usate la tenerezza, gesti semplici e mai ambigui: se fate l'amore rischiate di fare danni e creare uno squilibrio che non vi permetterá di risolvere quelle incomprensioni, ma iniziate dall'usare tenerezza, dolcezza, gesti semplici, piccoli.
 
 Questo parlare senza parole permette di condividere le emozioni e i sentimenti e aprire il cuore, dona intimitá. È un modo di comunicare con il corpo ed è una bomba perché riesce ad eliminare quella distanza. In fondo questo è proprio lo scopo piú alto della tenerezza: avvicinare i cuori.
 
@@ -120,15 +120,27 @@ Saper dialogare crea intimitá, unione profonda, condivisione vera. Quando l'alt
 Non dimenticate che il punto da tenere ben presente è che siamo diversi e parliamo lingue diverse. Lo Spirito Santo dona la grazia di capirci!! Bisogna sempre chiederla. Ogni volta, prima di parlare con qualcuno, prima di fare un incontro, prima di fare una telefonata con una persona che ha difficoltá, ogni volta prego e preghiamo questa preghiera allo Spirito Santo di Santa Caterina da Siena
 
 _Spirito Santo,
+
 vieni nel mio cuore
+
 con la tua potenza attrailo a te.
+
 Concedimi carità con timore,
+
 riscaldami ed infiammami
+
 con il tuo dolcissimo amore,
+
 si che ogni pena mi paia leggera.
+
 Dolce mio Padre,
+
 dolce mio Signore,
+
 ora aiutami in ogni mia azione.
+
 Cristo amore,
+
 Cristo amore,
+
 Cristo amore._
