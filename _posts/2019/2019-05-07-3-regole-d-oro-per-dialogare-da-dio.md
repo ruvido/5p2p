@@ -13,7 +13,7 @@ Io e Francesco siamo una coppia molto litigiosa. È abbastanza ridicolo che noi 
 
 Mi vengono in mente due cose:
 
-/- la prima è la **differenza tra Babele e l'effusione dello Spirito Santo**:
+\- la prima è la **differenza tra Babele e l'effusione dello Spirito Santo**:
 
 [padre Giovanni](https://www.youtube.com/watch?v=RIfxSoh4Bbk) che nel suo studiolo, al piano sotto la sua amata frateria, con tanta pazienza (e con noi due ce ne vuole sempre tanta!), ci spiegava la differenza tra Babele (Gen 11) e l'effusione dello Spirito Santo (Atti 2). Siamo maschio e femmina, due estremi per natura, diversi e opposti, ma noi cerchiamo sempre l'omologazione. Se l'altro non mi capisce allora, ancor prima che finisca di parlare, concludo dentro di me che la nostra relazione è sbagliata. Il punto cruciale è che noi cerchiamo l'omologazione. Noi cerchiamo sempre e continuamente di ripetere Babele, ovvero di parlare una lingua sola, la stessa lingua. È impossibile! Parliamo due lingue diverse perché sia diversi e lo saremo sempre. Babele è la pretesa dell' uomo che non fa i conti con la realtá e vive di ideologie e di sforzi. L'uomo senza Dio fa casini e crea confusione.
 
@@ -21,17 +21,17 @@ Invece l'opera di Dio è quando _"parlavano lingue diverse e si capivano"_ perch
 
 Che lavoraccio! Mamma mia che lavoraccio! Peró è un lavoro che insegna ad amare veramente perché parte dal rispetto di se stessi e dall'accoglienza di chi mi sta davanti. **È una grazia**, un miracolo da chiedere. È con questo che una coppia e una relazione diventano solide. A che serve il tempo del fidanzamento se non ad imparare questo?! Di solito a casa nostra si trova una strada nuova che non era né quella che volevo percorrere io e né quella che voleva fare lui. È una strada nuova, inaspettata, da scoprire insieme, spesso è sempre un'avventura nonostante partiamo da desideri ed idee che sembrano incompatibili.
 
-/- La seconda cosa è vedere come questo punto della diversitá uomo-donna è continuamente attaccato nell'arco della storia e, in maniera esagerata, negli ultimi trent'anni. Essere diversi da' sempre fastidio. In questi anni, mentre ci riempiamo la bocca di quanto sia bella la diversitá, non abbandoniamo mai il nostro idolo dell'omologazione che è un vento che ieri soffiava ad ovest ed oggi ad est; prima le donne dovevano stare solo in casa a fare figli, oggi le donne devono per forza lavorare e possono fare figli se non lede la carriera. Ma meglio non mettere troppa carne a cuocere. Non tocco l'argomento gender e movimento gay e lgbt altrimenti altro che Babele.
+\- La seconda cosa è vedere come questo punto della diversitá uomo-donna è continuamente attaccato nell'arco della storia e, in maniera esagerata, negli ultimi trent'anni. Essere diversi da' sempre fastidio. In questi anni, mentre ci riempiamo la bocca di quanto sia bella la diversitá, non abbandoniamo mai il nostro idolo dell'omologazione che è un vento che ieri soffiava ad ovest ed oggi ad est; prima le donne dovevano stare solo in casa a fare figli, oggi le donne devono per forza lavorare e possono fare figli se non lede la carriera. Ma meglio non mettere troppa carne a cuocere. Non tocco l'argomento gender e movimento gay e lgbt altrimenti altro che Babele.
 
 ## Come comunicare?
 
 Dice il Ruvido che ci sono tre tipi di persone:
 
-/- quelle che parlano degli altri o delle cose in generale (politica, societá, sport, pettegolezzi)
+\- quelle che parlano degli altri o delle cose in generale (politica, societá, sport, pettegolezzi)
 
-/- quelle che parlano di progetti che vogliono realizzare
+\- quelle che parlano di progetti che vogliono realizzare
 
-/- quelle che parlano di loro stessi e di quello che sono
+\- quelle che parlano di loro stessi e di quello che sono
 
 Il primo tipo di dialogo potrebbe essere interessante se ci sono le elezioni in corso o, in altri casi, è solo vuoto, non utile alla relazione. Il secondo tipo di dialogo approfondisce idee, ma è ancora un dialogo esterno alla relazione. Parli di te ma non in maniera intima. Parli di "fare" qualcosa o di cosa vorresti fare. Ma solo quando parli di te, della tua interioritá e dei tuoi sentimenti, crei relazioni profonde.
 **Parlare di sé**. Questo è il punto. Solo quando parlo di me creo intimitá. Questo è il must.
@@ -50,18 +50,20 @@ Vorrei solo che fosse uguale a me e capisse i miei bisogni con la forza del pens
 
 Per cambiare registro bisogna parlare di sé. Solo in questo modo si elimina il giudizio ("tu sei cosí"), si elimina l'interpretare l'altro ("tu fai questo perché vuoi ottenere questo o perché sei come tuo padre") e si apre il cuore. Di solito diciamo:
 
-/- sei il solito rompi scatole che vuole sempre cambiare tutto e mettere in discussione tutto; pure con la libreria devi rompere! Tu non la vuoi montare non perché il truciolato ha ceduto dopo l'ennesimo trasloco, ma perché vuoi fare sempre a modo tuo"
+\- sei il solito rompi scatole che vuole sempre cambiare tutto e mettere in discussione tutto; pure con la libreria devi rompere! Tu non la vuoi montare non perché il truciolato ha ceduto dopo l'ennesimo trasloco, ma perché vuoi fare sempre a modo tuo"
 
-Ma com'è diverso dire invece:
-/- a me la vecchia libreria dietro al tavolo in soggiorno mi è sempre piaciuta e vorrei tanto rimetterla qui com'era prima perché mi fa sentire meno la mancanza di Freiburg
+Ma com'è diverso dire invece: 
+
+\- a me la vecchia libreria dietro al tavolo in soggiorno mi è sempre piaciuta e vorrei tanto rimetterla qui com'era prima perché mi fa sentire meno la mancanza di Freiburg
 
 La notate la **differenza**?
 Nel primo caso inizia la battaglia corpo a corpo:
 
-/- sei sempre la solita! Basta che non si cambia niente e sei contenta. Se fosse stato per te ancora eravamo in Francia nonostante entrambi ci siamo trovati male pur di non cambiare. La casa è nostra e non decidi solo tu come mettere la libreria, deve piacere anche a me.
+\- sei sempre la solita! Basta che non si cambia niente e sei contenta. Se fosse stato per te ancora eravamo in Francia nonostante entrambi ci siamo trovati male pur di non cambiare. La casa è nostra e non decidi solo tu come mettere la libreria, deve piacere anche a me.
 
-Nella seconda frase, invece, apro il cuore e la risposta è stata un abbraccio aggiunto a:
-/- tesoro! Mi dispiace che ti manca cosí tanto Freiburg, ma questa è una nuova casa, qui c'è una nuova storia da vivere, non aver paura di cambiare, è solo una libreria e se ci tieni tanto la mettiamo dove vuoi tu
+Nella seconda frase, invece, apro il cuore e la risposta è stata un abbraccio aggiunto a: 
+
+\- tesoro! Mi dispiace che ti manca cosí tanto Freiburg, ma questa è una nuova casa, qui c'è una nuova storia da vivere, non aver paura di cambiare, è solo una libreria e se ci tieni tanto la mettiamo dove vuoi tu
 
 A dire il vero di solito rimaniamo senza libreria dopo un trasloco per almeno otto mesi perché io vorrei rimettere tutto come nella vecchia casa anche se la libreria (quella piú economica di ikea è sempre la nostra!) durante il trasloco si è distrutta e non regge piú al quattrocentesimo rimontaggio e Francesco non vedeva l'ora che arrivasse a questo punto per sbarazzarsene perché l'ha sempre odiata; a questo va aggiunto che io la vorrei proprio nella stessa posizione in cui era nella vecchia casa perché ogni cambiamento mi destabilizza anche se i libri di filosofia dell'universitá li inverti di posizione con quelli di pedagogia già mi rode. Insomma Francesco vuole sempre cambiare, fare cose nuove, avventurarsi, io invece bastachenontocchiniente sono contenta.
 
@@ -79,9 +81,11 @@ Noi siamo il disastro massimo perché se per una libreria non riusciamo a trovar
 
 Banalmente si pensa che il dialogo serve a trovare un accordo, un compromesso, una mediazione tra quello che penso io e quello che pensi tu. A casa nostra non funziona perché la conclusione di questi compromessi, nella maggior parte dei casi, è uno scontentare entrambi e un rinfacciarci tutto il tempo quella scelta.
 
-/- Ma com'è che hai questa faccia? Sei andato in bici tutta la mattina e neanche sei contento? Hai rotto tutto il tempo per farlo e adesso dobbiamo pure vedere sto muso..
-/- Sono andato in bici tutta la mattina girando mezza regione, ma sulla strada fra le macchine e non in mezzo ai boschi... era meglio non andarci
-/- A te non ti va mai bene niente...
+\- Ma com'è che hai questa faccia? Sei andato in bici tutta la mattina e neanche sei contento? Hai rotto tutto il tempo per farlo e adesso dobbiamo pure vedere sto muso.. 
+
+\- Sono andato in bici tutta la mattina girando mezza regione, ma sulla strada fra le macchine e non in mezzo ai boschi... era meglio non andarci 
+
+\- A te non ti va mai bene niente...
 
 Questo è un classico discorso dopo un compromesso: io volevo andare al mare in totale relax a tutti i costi, mentre Francesco voleva stare in tenda in mezzo alla natura sconfinata e andare in bici fra le montagne. Il compromesso a cui siamo arrivati è andare al mare in tenda convincendolo che gli altri del campeggio vanno sempre in bici e quindi poteva farlo anche lui. Il risultato è che nessuno dei due gode  e ci rinfacciamo le cose. La parola compromesso per me la possiamo associare alla parola fritto misto.
 
