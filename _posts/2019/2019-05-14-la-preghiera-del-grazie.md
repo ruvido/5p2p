@@ -24,7 +24,7 @@ Mi rendo conto che il mio modo di relazionarmi con il Signore spesso è stato un
 
 Quello che per me fa la differenza tra essere credente e non esserlo è questa visione. Vedere tutto come una grazia.
 
-> Tutto concorre al bene di coloro che amano Dio. <cite>Rm 8,28 </cite>
+> Tutto concorre al bene di coloro che amano Dio. <cite>Rm 8,28</cite>
 
 Di solito chiediamo, ci agitiamo, riempiamo la testa a Dio di tantissime chiacchiere, ma la prima cosa da fare è ringraziare sempre e comunque. Ringraziare per le falangi prima che si rompano e anche dopo. E se fosse una grazia questo mio stare a casa ferma a perdere tempo a farmi stracciare a briscola da Chiara e a scrivere questo post? Se questa fosse un'occasione che Dio mi sta dando? Per me questa è l'unica cosa che mi cambia la vita. Vedere la vita dalla prospettiva di Dio è la cosa che cambia la mia vita. 
 
