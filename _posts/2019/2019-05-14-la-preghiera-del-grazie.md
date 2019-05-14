@@ -2,6 +2,7 @@
 title: La preghiera del GRAZIE!
 author: Alescanca
 image: ''
+permalink: la-preghiera-del-grazie
 
 ---
 Dice sempre padre Giovanni "Dio mette i Suoi doni nei tuoi grazie". Non so voi, ma io non so mai come pregare. Nella preghiera bisogna chiedere, bisogna adorare, bisogna riflettere…??? Che bisogna fare? Forse bisogna semplicemente ringraziare.
