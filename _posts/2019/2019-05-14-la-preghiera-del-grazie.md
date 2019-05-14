@@ -1,7 +1,7 @@
 ---
 title: La preghiera del GRAZIE!
 author: Alescanca
-image: ''
+image: "/uploads/la-preghiera-del-grazie.jpg"
 permalink: la-preghiera-del-grazie
 
 ---
