@@ -24,7 +24,7 @@ Mi rendo conto che il mio modo di relazionarmi con il Signore spesso è stato un
 
 Quello che per me fa la differenza tra essere credente e non esserlo è questa visione. Vedere tutto come una grazia.
 
-<cite> Tutto concorre al bene di coloro che amano Dio. Rm 8,28 </cite>
+> Tutto concorre al bene di coloro che amano Dio. <cite>Rm 8,28 </cite>
 
 Di solito chiediamo, ci agitiamo, riempiamo la testa a Dio di tantissime chiacchiere, ma la prima cosa da fare è ringraziare sempre e comunque. Ringraziare per le falangi prima che si rompano e anche dopo. E se fosse una grazia questo mio stare a casa ferma a perdere tempo a farmi stracciare a briscola da Chiara e a scrivere questo post? Se questa fosse un'occasione che Dio mi sta dando? Per me questa è l'unica cosa che mi cambia la vita. Vedere la vita dalla prospettiva di Dio è la cosa che cambia la mia vita. 
 
@@ -50,7 +50,7 @@ Quanto piú ringraziamo tanto piú siamo capaci di godere dei doni di Dio. Tanto
  
 Una volta, uscendo dall'universitá, avevo un forte dubbio proprio su questo. Pensavo: "ma veramente Dio sa tutto e provvede, oppure è tutto un autoconvincimento?". Passo davanti alla cappella universitaria. Entro. Al centro della navata centrale c'era il lezionario aperto con un salmo che diceva: 
 
-<cite> Chi ha formato l'orecchio, forse non sente?  Chi ha plasmato l'occhio, forse non vede? Salmo 93 </cite>
+> Chi ha formato l'orecchio, forse non sente?  Chi ha plasmato l'occhio, forse non vede? <cite>Salmo 93 </cite>
 
 
 Caspita!!!! Ho l'impressione che ci dimentichiamo che Dio ascolta di sicuro. Ma poi, ti pare che Uno che crea il mondo, gli animali, il mare, l'uomo, poi non è capace di ascoltare una mia necessitá? Solo ci dimentichiamo sempre che Lui non opera secondo i nostri piani, ma usa strade che noi di solito neanche ci immaginiamo come risposta. Ad esempio: noi chiediamo l'umiltá e Dio ci dona una serie di umiliazioni, una dopo l'altra. Non capisci. Ma che sta succedendo? È semplicemente la risposta alla tua preghiera! (questo è uno dei motivi per cui mai chiederei l'umiltá a Dio :-). Dei nostri amici chiedevano insistentemente al Signore di vivere la povertá perché gli colpiva tantissimo un brano del vangelo che avevano scelto per il loro matrimonio. Il Signore ha risposto con un contratto a tempo indeterminato e loro sono rimasti senza parole. Dopo qualche anno hanno avuto il dono di una bambina affetta dalla sindrome di down e stanno capendo davvero cosa sia la povertá. Leggete la loro storia [qui](https://cromosoma21.5p2p.it/vieni-e-seguimi/). 
@@ -64,17 +64,3 @@ I miei esempi preferiti sono **san Francesco e santa Chiara** che mentre morivan
 
 Dopo un'ingiustizia o un piede rotto potremmo iniziare a ringraziare cosí:
 Grazie Signore che mi dai questa prova! Finalmente adesso ho qualcosa di serio da offrirti e non le mie solite chiacchiere. Grazie Signore per tutte le falangi dei piedi, per le mie e quelle dei mie figli. Non sapevo quanto erano importanti. Grazie Signore che adesso mi dai l'occasione per farmi volere bene fino lasciarmi aiutare a farmi una doccia. Ma soprattutto Signore ti ringrazio perché hai usato questa cosa per risolvere un problema ben piú serio e piú preoccupante. Solo Tu Signore potevi agire in maniera cosí geniale e provvidenziale. Solo Tu Signore potevi ascoltare in modo cosí elevato la mia piccola preghiera. Grazie Signore!
-
-
-
-
-
-
-
-
-
-
-
-
-
-
