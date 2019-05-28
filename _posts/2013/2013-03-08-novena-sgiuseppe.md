@@ -2,6 +2,8 @@
 title: Novena a S. Giuseppe
 #layout: post-fb
 author: Ruvido
+redirect_from: /2013/03/08/novena-sgiuseppe.html
+permalink: novena-san-giuseppe
 ---
 
 <!-- INIZIO -->

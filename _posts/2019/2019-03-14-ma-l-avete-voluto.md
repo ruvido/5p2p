@@ -3,7 +3,7 @@ title: Ma l'avete voluto?
 author: Alescanca
 image: "/uploads/ma-l-avete-voluto.jpg"
 permalink: ma-l-avete-voluto
-date: 2019-03-14 10:11:48 +0100
+date: 2019-03-14 09:11:48 +0000
 
 ---
 Questa è la frase che chiunque ci incontra e intravede la mia panza esagerata ci fa. Ebbene sí, dopo anni di desideri, lotte intestine con me stessa, con Dio e con il mondo finalmente **siamo in attesa**!!!!!!
@@ -65,7 +65,7 @@ So bene che toccare argomenti come la sessualitá, la contraccezione, l'apertura
 
 #### L'apertura alla vita.
 
-Preciso che essere aperti alla vita _non vuol dire avere quindici figli_ o quelli che Dio ti manda. Non è questo quello che dice la chiesa. Per sapere cosa dice la chiesa devi leggere il *_Catechismo Della Chiesa Cattolica_ nella parte in cui si parla del _sesto comandamento_ e in particolare dove parla della **castitá per gli sposi** (parola sempre molto abusata e travisata, con un significato invece molto profondo e soprattutto _opposto_ a quello che si pensa). Il tuo parroco o la catechista del tuo gruppo puó dire che è irrealistico avere mille figli o, al contrario, che se vuoi vivere a pieno il matrimonio devi accogliere i figli che Dio ti manda senza tenere presente nulla. La veritá non la dico io e non la dice il parroco e neanche la catechista, la trovi sul Catechismo perché è quello il documento ufficiale della chiesa, il resto sono opinioni.
+Preciso che essere aperti alla vita _non vuol dire avere quindici figli_ o quelli che Dio ti manda. Non è questo quello che dice la chiesa. Per sapere cosa dice la chiesa devi leggere il *Catechismo Della Chiesa Cattolica* nella parte in cui si parla del _sesto comandamento_ e in particolare dove parla della **castitá per gli sposi** (parola sempre molto abusata e travisata, con un significato invece molto profondo e soprattutto _opposto_ a quello che si pensa). Il tuo parroco o la catechista del tuo gruppo puó dire che è irrealistico avere mille figli o, al contrario, che se vuoi vivere a pieno il matrimonio devi accogliere i figli che Dio ti manda senza tenere presente nulla. La veritá non la dico io e non la dice il parroco e neanche la catechista, la trovi sul Catechismo perché è quello il documento ufficiale della chiesa, il resto sono opinioni.
 
 Quello che so io è che **è un cammino** e non ci sono mai le _regolette_ da applicare tipo stickers di Spider Man. Dio non ci mette mai nei quadratini e ci fa diventare tanti bei soldatini arruolati. Insomma diffidate dalle imitazioni di cristiani qualunquisti perché sono di basso livello. Leggete da soli il Catechismo e informatevi come si deve. Non vi lanciate in critiche prima di aver letto o, se proprio volete, scrivetele nei commenti che mi servono per la prossima confessione.
 
