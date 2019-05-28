@@ -1,7 +1,7 @@
 ---
 title: 'Il progetto di Dio: obiettivo n.1'
 author: Alescanca
-image: "/uploads/template blog (1).jpg"
+image: ''
 permalink: il-progetto-di-dio-obiettivo-n1
 
 ---
