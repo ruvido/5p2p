@@ -7,9 +7,7 @@ permalink: mi-sono-innamorata-della-sua-liberta
 ---
 Sono sempre stata una persona abbastanza fuori schema, la ribelle della famiglia. Ci sono delle cose che mi gridano dentro e non riesco a tacere anche se, per farlo, a volte, faccio pasticci. Tra tutte peró c'è proprio una cosa a cui non riesco a fare a meno: la libertá. Proprio il suo profumo mi ha fatta innamorare del ruvido.
 
-Sono le cinque del mattino. Tutto tace. Francesco è a Milano per un matrimonio e i bambini dormono beati tranne Rebecca qui nel mio enorme pancione che calcia a tutta carica. Ho appena prenotato un albergo perché oggi raggiungo Francesco in aeroporto a Napoli per partire insieme a Roma per un'intervista a TV2000. Insomma la mia giornata è partita giá. 
-
-https://www.youtube.com/watch?v=lgdccIpEo2c&t=3s
+Sono le cinque del mattino. Tutto tace. Francesco è a Milano per un matrimonio e i bambini dormono beati tranne Rebecca qui nel mio enorme pancione che calcia a tutta carica. Ho appena prenotato un albergo perché oggi raggiungo Francesco in aeroporto a Napoli per partire insieme a Roma per un'[intervista a TV2000](https://www.youtube.com/watch?v=lgdccIpEo2c&t=3s). Insomma la mia giornata è partita giá. 
 
 Sará la luce calda delle mattine estive o la prospettiva di passare due giorni da sola con Francesco dopo un periodo un po' faticoso o forse prendere l'autobus (cosa che non faccio da tempo) ma tutto questo mi ricorda le origini, quando prendevo il pullman delle 5.30 proprio da qui, in Basilicata, per arrivare a Roma ed incontrare quel mio amico della marcia che nel frattempo era diventato il mio ragazzo. Non voglio fare la romanticona, ma a volte mi piace fermarmi e rendermi conto della strada fatta.
 
@@ -29,9 +27,7 @@ Oggi vedo che senza Francesco mai e poi mai sarei passata su questi sentieri, ma
 
 C'è stato un tempo in cui ho vissuto di "fare" cose buone, di impegno in parrocchia soprattutto. Da quando abbiamo iniziato il cammino di discernimento per iniziare 5pani2pesci, invece, nonostante tantissime paure, soprattutto quella di lasciare una sudatissima carriera che stava portando stabilitá economica, ho vissuto un cambiamento nella mia vita molto profondo: dal "fare" cose buone al darmi la libertá con Francesco di godere dell'Amore di Dio. Nel cercare il progetto di Dio come prioritá assoluta e godere di tanto Amore prende forma poi tutto il resto. La nostra vita si è come ordinata a questo obiettivo irrinunciabile. Tutto ha preso il suo posto secondo questa prioritá: prima il progetto di Dio e poi pensare a come vivere, come risolvere i problemi di coppia, dove abitare, come stare con i figli. Attenzione!!! Non sto dicendo che viviamo mettendo come prioritá il Signore e il suo progetto su di noi e non lavoriamo o aspettiamo che la vita si risolva da sola nella sua complessitá. No! Non sto dicendo questo! Sto invece dicendo che quando metti il Signore al centro e vivi a pieno il sacramento del matrimonio tutto il resto prende un altro ordine: ad esempio vivere in una casa piccola o potersi permettere una casa piú grande diventa secondario, non perché non ne abbiamo bisogno (fra due mesi e mezzo saremo in sei! Avere una stanza in piú non sarebbe male visto in casa ci lavoriamo anche), ma perché i miei pensieri sono spesi per qualcosa di piú grande. Capite cosa intendo?
 
-La fede ti fa le domande, guarda il video sul nostro canale youtube
-
-https://www.youtube.com/watch?v=J8WHagjAo1M&t=24s 
+La fede ti fa le domande, guarda il [video sul nostro canale youtube](https://www.youtube.com/watch?v=J8WHagjAo1M&t=24s) 
 
 Riordinando le cose si fa ordine nella relazione con Dio e nasce nel cuore tanta **gratitudine**, quella che ci porta ad alzarci la mattina alle cinque per lavorare per 5pani2pesci, per le foto ai matrimoni, per i video, per piegare i calzini (stamattina giá ho piegato una lavatrice), a viaggiare in continuazione anche con il pancione, a fare gli incontri anche con il dito rotto, ad intrufolarsi nel letto dei figli per fare le coccole mentre ancora dormono. Non è per buonismo o volontariato, ma solo per gratitudine che si arriva a fare tutto questo.
 
