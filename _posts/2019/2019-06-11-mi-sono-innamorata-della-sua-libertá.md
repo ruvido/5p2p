@@ -7,7 +7,7 @@ permalink: mi-sono-innamorata-della-sua-liberta
 ---
 Sono sempre stata una persona abbastanza fuori schema, la ribelle della famiglia. Ci sono delle cose che mi gridano dentro e non riesco a tacere anche se, per farlo, a volte, faccio pasticci. Tra tutte peró c'è proprio una cosa a cui non riesco a fare a meno: la libertá. Proprio il suo profumo mi ha fatta innamorare del ruvido.
 
-Sono le cinque del mattino. Tutto tace. Francesco è a Milano per un matrimonio e i bambini dormono beati tranne Rebecca qui nel mio enorme pancione che calcia a tutta carica. Ho appena prenotato un albergo perché oggi raggiungo Francesco in aeroporto a Napoli per partire insieme a Roma per [un'intervista a TV2000](https://www.youtube.com/watch?v=lgdccIpEo2c&t=3s). Insomma la mia giornata è partita giá.
+Sono le cinque del mattino. Tutto tace. Francesco è a Milano per un matrimonio e i bambini dormono beati tranne Rebecca qui nel mio enorme pancione che calcia a tutta carica. Ho appena prenotato un albergo perché oggi raggiungo Francesco in aeroporto a Napoli per partire insieme a Roma per [un'intervista a TV2000](https://www.youtube.com/watch?v=lgdccIpEo2c&t=3s). Insomma la mia giornata è partita giá. 
 
 Sará la luce calda delle mattine estive o la prospettiva di passare due giorni da sola con Francesco dopo un periodo un po' faticoso o forse prendere l'autobus (cosa che non faccio da tempo) ma tutto questo mi ricorda le origini, quando prendevo il pullman delle 5.30 proprio da qui, in Basilicata, per arrivare a Roma ed incontrare quel mio amico della marcia che nel frattempo era diventato il mio ragazzo. Non voglio fare la romanticona, ma a volte mi piace fermarmi e rendermi conto della strada fatta.
 
