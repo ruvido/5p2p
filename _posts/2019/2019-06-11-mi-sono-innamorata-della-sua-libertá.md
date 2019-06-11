@@ -11,7 +11,7 @@ Sono le cinque del mattino. Tutto tace. Francesco è a Milano per un matrimonio 
 
 Sará la luce calda delle mattine estive o la prospettiva di passare due giorni da sola con Francesco dopo un periodo un po' faticoso o forse prendere l'autobus (cosa che non faccio da tempo) ma tutto questo mi ricorda le origini, quando prendevo il pullman delle 5.30 proprio da qui, in Basilicata, per arrivare a Roma ed incontrare quel mio amico della marcia che nel frattempo era diventato il mio ragazzo. Non voglio fare la romanticona, ma a volte mi piace fermarmi e rendermi conto della strada fatta.
 
-## Galeotta fu la marcia
+## Una finestra spalancata sul mondo
 
 Ci siamo conosciuti alla marcia francescana, camminando verso Assisi per ricevere il perdono alla Porzìuncola. Francesco era in "_bonifica_" ovvero era in pausa obbligata dal finire nell'ennesimo pasticcio amoroso. Per lui questo voleva dire avere sí uno stop nell'entrare in una storia, ma allo stesso tempo, poter conoscere tutte le ragazze senza secondi fini. Insomma libero sfogo a qualsiasi conoscenza.
 
