@@ -41,7 +41,7 @@ Noi non l'abbiamo mai conosciuta personalmente, ma lei ed Enrico hanno cominciat
 
 Francesco si occupava nella sua ricerca di Alzheimer e altre malattie. Cosa nobilissima. Ma c'era sempre un peró nel suo cuore. Con la morte di Chiara riusciamo a dare un nome a quel peró: _"Se con tutto il mio impegno, la mia intelligenza e la mia ricerca riesco a far vivere dieci anni di piú una persona ne sarei felice, ma se spendessi le mie energie perché quella persona viva una vita piena credo ne varrebbe molto di piú la pena"_ diceva Francesco. Insomma, se cambi dieci anni in piú e rimani quello che sei continuando a vivere una vita vuota a cosa serve? Meglio **vivere in pienezza la tua vita** indipendentemente da quanti anni vivrai. Da quel momento "tirate le barche a terra lasciarono tutto e lo seguirono", ovvero Francesco non riusciva a pensare ad altro se non a concludere i lavori aperti e le responsabilitá che aveva.
 
-Il blog, i corsi e le foto ai matrimoni
+Il blog, i corsi e [le foto ai matrimoni](https://weddings.5p2p.it/)
 
 In tutto questo trambusto di risposte e incertezze padre Giovanni ci chiede di fare una testimonianza a conclusione del corso fidanzati. Noi due? Appena usciti da una crisi devastante, con tutte le domande di non capire cosa ci sta chiedendo il Signore? Ma padre Giovanni insisteva e non ce la siamo sentita di dire di no. Lí abbiamo sperimentato quel vangelo che nel segreto di una sera in Porziuncola, con una luce tenuta viva da una candela su quell'altare piccolissimo, ci lesse fra Massimo mentre ci promettevamo sposi scambiandoci un anello
 
@@ -61,4 +61,4 @@ Oggi la nostra vita è tutta dedicata a questo. Siamo una famiglia qualsiasi con
 
 ## Per concludere
 
-Non [fate una famiglia come la nostra](https://5p2p.it/non-fare-una-famiglia-come-la-nostra). La gioia piena non è nel copia e incolla, ma nel realizzare il progetto di Dio su di te, su di voi perché [Dio ci ha fatti unici e fichissimi](https://5p2p.it/2015/05/26/dio-ci-ha-fatti-fichissimi.html). Per capire questo progetto bisogna ascoltare (i nostri corsi hanno proprio questo obiettivo, sono un tempo di ascolto per ricevere strumenti) e iniziare un cammino di discernimento accompagnati da una guida spirituale.
+[Non fate una famiglia come la nostra](https://5p2p.it/non-fare-una-famiglia-come-la-nostra). La gioia piena non è nel copia e incolla, ma nel realizzare il progetto di Dio su di te, su di voi perché [Dio ci ha fatti unici e fichissimi](https://5p2p.it/2015/05/26/dio-ci-ha-fatti-fichissimi.html). Per capire questo progetto bisogna ascoltare (i nostri corsi hanno proprio questo obiettivo, sono un tempo di ascolto per ricevere strumenti) e iniziare un cammino di discernimento accompagnati da una guida spirituale.
