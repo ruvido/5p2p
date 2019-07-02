@@ -25,15 +25,15 @@ Ci siamo conosciuti e fidanzati non proprio da giovanissimi: io avevo 36 anni e 
 
 >Non ricordate più le cose passate,
 
-non pensate più alle cose antiche!
+>non pensate più alle cose antiche!
 
-Ecco, faccio una cosa nuova:
+>Ecco, faccio una cosa nuova:
 
-proprio ora germoglia, non ve ne accorgete?
+>proprio ora germoglia, non ve ne accorgete?
 
-Aprirò anche nel deserto una strada,
+>Aprirò anche nel deserto una strada,
 
-immetterò fiumi nella steppa.<cite> Isaia 43,18-19 </cite>
+>immetterò fiumi nella steppa.<cite> Isaia 43,18-19 </cite>
 
 
 Ricordo che, anni fa, quando col mio padre spirituale cercavo di comprendere quale fosse la mia chiamata specifica all’amore (se la consacrazione o la vita matrimoniale), c’era una frase di un libro che lui mi aveva dato da leggere che io proprio non capivo e che diceva più o meno così: **“capirai che è la tua vocazione proprio quando ti porterà nel luogo in cui tu non vuoi andare”**. Detta così non ci dormivo la notte e mi faceva molta paura…Mi ero quasi fatta l’idea che la mia felicità era da una parte ed il piano di Dio per me da tutt’altra. Solo qualche anno dopo avrei capito meglio…
