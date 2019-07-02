@@ -61,4 +61,5 @@ Ecco Signore che Tu mi spogli delle mie certezze e mi spingi a cambiare e ad and
 E allora, questa volta, ho deciso di seguirTi Signore. Ho deciso di smettere di avere paura e di lasciare che tu, finalmente, faccia **una cosa nuova** con me e con NOI.
 
 Grazie… con amore,
+
 Antonia
