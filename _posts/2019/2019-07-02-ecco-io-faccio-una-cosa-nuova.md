@@ -24,16 +24,11 @@ Se c’è una Parola che ritorna nel mio cammino prima del fidanzamento e adesso
 Ci siamo conosciuti e fidanzati non proprio da giovanissimi: io avevo 36 anni e lui 46 ed ognuno di noi due aveva una personalità molto ben strutturata e tante certezze e ferite nel proprio “zaino di vita”. Proprio per questo devo dire che, anche grazie al contributo dei nostri caratteri totalmente opposti (per cui un giorno sono certa che batteremo una coppia di amici che vincono puntualmente il premio annuale “incompatibilità caratteriale”!), fra noi non è mai stato un idillio, fin dall’inizio. Eppure sentivo profondamente che il Signore aveva una Parola per noi due, l’aveva annotata distrattamente Roberto sul foglietto che mi diede con dietro il suo numero di cellulare quando ci salutavamo dopo un corso, con la speranza (almeno mia!) di risentirci ancora: 
 
 >Non ricordate più le cose passate,
-
->non pensate più alle cose antiche!
-
->Ecco, faccio una cosa nuova:
-
->proprio ora germoglia, non ve ne accorgete?
-
->Aprirò anche nel deserto una strada,
-
->immetterò fiumi nella steppa.<cite> Isaia 43,18-19 </cite>
+non pensate più alle cose antiche!
+Ecco, faccio una cosa nuova:
+proprio ora germoglia, non ve ne accorgete?
+Aprirò anche nel deserto una strada,
+immetterò fiumi nella steppa.<cite> Isaia 43,18-19 </cite>
 
 
 Ricordo che, anni fa, quando col mio padre spirituale cercavo di comprendere quale fosse la mia chiamata specifica all’amore (se la consacrazione o la vita matrimoniale), c’era una frase di un libro che lui mi aveva dato da leggere che io proprio non capivo e che diceva più o meno così: **“capirai che è la tua vocazione proprio quando ti porterà nel luogo in cui tu non vuoi andare”**. Detta così non ci dormivo la notte e mi faceva molta paura…Mi ero quasi fatta l’idea che la mia felicità era da una parte ed il piano di Dio per me da tutt’altra. Solo qualche anno dopo avrei capito meglio…
