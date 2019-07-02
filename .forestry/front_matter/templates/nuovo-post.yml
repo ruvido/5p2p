@@ -29,6 +29,7 @@ fields:
   config:
     required: false
 pages:
+- _posts/2019/ecco-io-faccio-una-cosa-nuova.md
 - "_posts/2019/come-nasce-5pani2pesci-\U0001F60E.md"
 - _posts/2019/un-amore-al-contrario-o-forse-no.md
 - _posts/2019/mi-sono-innamorata-della-sua-libertá.md
