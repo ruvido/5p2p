@@ -33,7 +33,7 @@ Oggi si viaggia tanto e sembra che chi non lo fa è sfigato. Nostra figlia Chiar
 
 I figli sono per noi una benedizione, la piú grande opportunitá che la vita possa offrirci come famiglia, un viaggio in mondi unici che ci mettono in costante discussione come persone e ci costringono ad avere il cuore aperto. I figli a casa nostra mettono ordine nella vita, ci costringono a decidere le prioritá, quali sono le cose importanti, ci aiutano a rimanere nell'obbedienza alla vita fatta di cose a volte piccole, a volte straordinarie a volte molto faticose e frustranti. Certo, se penso che dopo anni dovremo ricominciare a litigare a chi cambia con i pannolini puzzolenti e sopravvivere alla fase _gattono/cammino e apro tutto_, mi prende male e penso che non ce la posso fare. Peró so che questa nuova avventura sará l'avventura piú bella.
 
-** E voi perché fate o non fate tanti figli?**
+**E voi perché fate o non fate tanti figli?**
 
 p.s.
 so che molti di voi non riescono ad avere figli o tanti figli per motivi "tecnici" e so che in questo c'è una sofferenza grande. A voi chiedo di pregare tanto per noi famiglie che ci troviamo costantemente a fare i conti tra il nostro egoismo, la nostra apertura alla vita e la nostra dose di assunzione di responsabilitá nei confronti di questa scelta.
