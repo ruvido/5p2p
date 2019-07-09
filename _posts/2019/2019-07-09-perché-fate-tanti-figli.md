@@ -7,7 +7,7 @@ permalink: perche-fate-tanti-figli
 ---
 Questa è la domanda che ci ha rivolto l'altro giorno un giornalista di un famosissimo settimanale (assolutamente non cristiano) per un articolo riguardo al calo delle nascite in Italia.
 
-La domanda mi piace molto, moltissimo perché sembra che a volte ci siano piú giudizi che domande a riguardo, piú "accuse" che apertura a qualcosa di ormai fuori schema. La domanda classica è sempre la stessa: **["Ma l'avete voluto?"**](https://5p2p.it/ma-l-avete-voluto). Una domanda piena di dubbi e timori che sostituisce lo stupore e la genuina bellezza di una notizia cosí bella.
+La domanda mi piace molto, moltissimo perché sembra che a volte ci siano piú giudizi che domande a riguardo, piú "accuse" che apertura a qualcosa di ormai fuori schema. La domanda classica è sempre la stessa: ["**Ma l'avete voluto?**"](https://5p2p.it/ma-l-avete-voluto). Una domanda piena di dubbi e timori che sostituisce lo stupore e la genuina bellezza di una notizia cosí bella.
 
 ## Qual è il numero giusto di figli?
 
