@@ -29,6 +29,7 @@ fields:
   config:
     required: false
 pages:
+- "_posts/2019/non-per-fortuna-ma-per-grazia-\U0001F64C.md"
 - _posts/2019/2019-05-07-3-regole-d-oro-per-dialogare-da-dio.md
 - _posts/2019/2019-05-14-la-preghiera-del-grazie.md
 - _posts/2019/2019-07-09-perché-fate-tanti-figli.md
