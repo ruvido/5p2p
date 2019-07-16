@@ -5,7 +5,7 @@ image: "/uploads/Non per forttuna, (1).jpg"
 permalink: non-per-fortuna-ma-per-grazia
 
 ---
-Ricevo, soprattutto io, molti messaggi del tipo "Sei fortunata ad avere questa intesa con tuo marito" o anche "Che fortuna che la pensate allo stesso modo, invece mio marito ...".
+Ricevo, soprattutto io, molti messaggi del tipo "Sei fortunata ad avere questa intesa con tuo marito" o anche "Che fortuna che la pensate allo stesso modo, invece mio marito ..."
 
 Non ho mai creduto nella fortuna e soprattutto mi rendo conto che spesso si scambia **testimoniare l'opera grande di Dio** nelle nostre vite con _"quanto siamo belli e bravi"_. Io ci rimango sempre male perché 5pani2pesci è fatto appunto per testimoniare che **non importa da dove parti e quanto sei incapace, importa solo quanto riesci a lasciare che Dio operi in te**. Non è questione di bravura, ma di apertura all'opera di Dio, di fiducia, di fede quindi. Io e Francesco ci mettiamo a nudo raccontando cose anche molto profonde ed intime di noi solo perché arrivi questo messaggio. Se addirittura noi due siamo riusciti a vedere l'opera di Dio nella nostra vita pasticciona e nella nostra relazione litigiosa, allora vuol dire che è proprio per tutti. Mi dispiace quando questo non arriva e arriva invece "che bella coppia, quanto siete fortunati ad esservi incontrati entrambi credenti".
 
