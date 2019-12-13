@@ -5,6 +5,7 @@ layout: post
 image: /images/extra/noi5.jpg
 summary: Ci chiamiamo Alessandra e Francesco e siamo sposati dal 2005, abbiamo tre magnifici cuccioli d'uomo che ogni giorno ci ricordano che ogni vita è una chiamata all'amore.
 ---
+
 Abbiamo girato diverse nazioni, dal 2010 al 2016 abbiamo vissuto a Freiburg in Germania nel cuore della foresta nera, dove è nato e cresciuto questo progetto. Tornati in Italia, ora ci troviamo in un paesino sperduto della Basilicata dove continuiamo a lavorare per il Suo meraviglioso progetto :D
 
 Ad oggi 5pani2pesci è seguito da migliaia di giovani ogni mese. Il nostro augurio è che questo progetto ti possa aiutare ad approfondire un incontro autentico col Signore e **portare pienamente frutto nella tua vita!** È molto materiale, datti del tempo. Per aiutarti a tracciare un primo percoso, ecco una lista di articoli suggeriti.

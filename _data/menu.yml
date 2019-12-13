@@ -15,8 +15,12 @@
   class: color-3
 
 - name: Donazioni
-  url: "https://donorbox.org/collabora-con-noi"
-  class: color-4
+  url: "https://donorbox.org/collabora-con-noi?default_interval=m&amount=10"
+  class: color-4 dbox-donation-button
+
+  #- name: Donazioni
+  #  url: "https://donorbox.org/collabora-con-noi"
+  #  class: color-4
 
 # - name: Libri
 #   url: "http://5p2p.it/2013/12/16/10libri.html"
