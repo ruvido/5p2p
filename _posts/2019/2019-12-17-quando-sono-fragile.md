@@ -25,6 +25,7 @@ Da qui nasce la malattia di cui tutti siamo affetti: apparire invincibili, per f
 Mi rendo conto che l'unica cosa che mi resta oggi è solo una: rallentare, riconoscermi fragile e mollare tutto questo fare per ritornare all'essere. Mi risuonano le parole di Padre Giovanni: *"lo stress è sempre frutto del fare, mentre la gioia è il risultato dell'essere"*. Ho l'impressione che invece di spendere le mie energie per essere fantasticamente brava, dovrei usarne qualcuna per prendermi cura  della mia fragilitá perché è il luogo dove piú spesso incontro Dio. 
 
 >È quando sono debole che sono forte <cite> 2Cor 12,10 </cite>
+
 È quando sperimento la fragilitá e la accolgo a pieno e allora che posso vivere la forza di Dio, la potenza che Dio puó operare nella mia vita. Nonostante la frustrazione di vivere questi mesi disilludendo puntualmente le mie aspettative quotidiane vivo anche di uno sguardo d'Amore, di un'occasione da non perdere per sperimentare una forza che non è mia e che fa bene ogni cosa.
 
 ## Dio l'ha fatto apposta
