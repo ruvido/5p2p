@@ -4,12 +4,17 @@ author: Alescanca
 image: /img/posts/capodanno.jpg
 redirect_from: /2013/12/29/capodanno-da-dio.html
 permalink: capodanno-da-dio
-date: 2018-12-29
+date: 2019-12-27
 ---
+
+
 
 Hai gia' pensato dove passare il capodanno? Sei stato gia' invitato dai tuoi amici? Oppure ancora non ti si e' filato nessuno? Beh, nel caso invita tu i tuoi amici a casa tua per un capodanno da Dio, digli di portare cose buone da mangiare e poi tanta gratitudine da condividere, per il resto... leggi di seguito.
 
 I miei capodanni sono stati sempre semplici. Di solito passati al mio paesello sperduto in Basilicata a giocare a briscola con la zia Antonietta che ci faceva morire dal ridere e mio cugino che scoppiava i botti. Poi verso i 18 anni, quando iniziavo a bazzicare Roma insieme a Francesco, sono iniziati gli inviti più festaioli, in locali fittati da qualcuno, musica disco, qualche ballerino esuberante e vestiti sbrilluccicosi. Non so perché, sara' che in realtà sono molto timida e non amo ballare (mi sento goffa!!), ma queste feste mi lasciavano sempre un senso di grande solitudine e vuoto. Ho sempre pensato che ero io a non sapermi divertire, ero io la classica ragazza che si piazza in un angolo con un tartina e un bicchiere di coca cola in mano e non si schioda di li fino a che non e' ora di tornarsene a casa. Con gli anni ho scoperto che anche chi ballava, parlava con tutti o metteva la musica, in fondo in fondo, viveva le stesse cose che provavo io. 
+
+**Vedi anche il video:**
+{% include extra/youtube.html url="https://www.youtube.com/embed/vdriLiTE6-I"%}
 
 Quando ho incontrato Assisi e il capodanno organizzato dai frati ho avuto la conferma che non era semplicemente una questione di timidezza ma proprio di contenuti. Infatti ad Assisi ballavo, mi scatenavo, mi divertivo, mi sentivo libera e pure piena. Non facevo niente di speciale: un cenone a casa delle suore, poi tutti in palestra a ballare come dei pazzi con i frati e per finire processione silenziosa in Porziuncola con una candela in mano. Infine la messa e l'adorazione eucaristica mentre tutti sparavano botti a destra e a manca (chiaramente di ritorno a casa delle suore strapanettone tanto per non farsi mancare niente :-)
 
