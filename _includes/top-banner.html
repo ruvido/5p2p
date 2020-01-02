@@ -2,7 +2,8 @@
   .bum-top {
     /* background: black; */
     color: white;
-    background-color: #E74C3C;
+    #background-color: #E74C3C;
+    background-color: #2c3e50;
     width: 100%;
     height: 120px;
     display: flex; 
@@ -23,6 +24,14 @@
     justify-content: center;
     align-items: center;
   }
+  .bum-action{
+	  border-style: solid;
+	  border-width: 2px;
+	  border-color: white;
+	  color: white;
+	  padding: 1rem;
+  }
+
 </style>
 
 
@@ -32,30 +41,16 @@
 <div class="bum-top">
   <div class="bum-message">
       <div>
-        <div class="bum-text">Prossima tappa</div>
-	<div class="bum-subtext"><strong>L'AMORE CHIAMA 🎯</strong></div>
+        <div class="bum-text"><strong>L'AMORE CHIAMA 🎯</strong></div>
+	<div class="bum-subtext">Milano 25-26 Gennaio</div>
       </div>
     </div>
   <div class="bum-button">
-    <div class="action-button">
-      <a href="{{site.data.top-banner.button.url}}">
-          MILANO 25-26 Gennaio
-      </a>
+      <a href="https://bit.ly/tour-milano-012020">
+    <div class="bum-action" style="text-decoration: none;">
+          ISCRIVITI!
     </div>
+      </a>
   </div>
 </div>
-
-  
-<!-- <header class="top-banner">
-  <span class="top-banner-message">
-    <span class="banner-text">{{site.data.top-banner.text}}</span>
-    <span class="banner-subtext">{{site.data.top-banner.subtext}}</span>
-  </span>
-  <span class="action-button">
-    <a href="{{site.data.top-banner.button.url}}">
-      {{site.data.top-banner.button.text}}
-    </a>
-  </span>
-</header>
-<div class="top-banner-spacer"></div> -->
 {% endif %}
