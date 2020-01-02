@@ -1,17 +1,25 @@
-- name: Iscriviti alla newsletter!
-  url:  "newsletter"
-  # url: "https://www.facebook.com/5loaves2fish.blog"
+- name: Ecco la Newsletter TELEGRAM!
+  url: "https://bit.ly/telegram-5p2p"
+  #url:  "newsletter"
+
+- name: VIDEO di Provvidenza
+  url: "http://bit.ly/5p2p-youtube"
 
 - name: Libri da leggere
   url: "libri"
 
-- name: Scrivici
-  url: "https://www.facebook.com/5pani2pesci"
-  # url:  "scrivici"
-  # url: "https://www.facebook.com/5loaves2fish.blog"
+- name: Chi siamo
+  url: "chi-siamo"
 
-#- name: Donazioni
+- name: "Instagram <i class='fa fa-instagram'></i>"
+  url: "http://bit.ly/instagram-5p2p"
+
+
+
+# - name: Scrivici
+#   url: "https://www.facebook.com/5pani2pesci"
+#   url:  "scrivici"
+
+#- name: Offri un caffè a 5pani2pesci
 #  url: "https://donorbox.org/collabora-con-noi"
 
-- name: "Seguici su <i class='fa fa-instagram' aria-hidden='true'></i>"
-  url: "https://www.instagram.com/5pani2pesci"

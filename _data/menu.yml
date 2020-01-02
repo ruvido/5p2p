@@ -1,22 +1,22 @@
+- name: TOUR ⭐️ Eventi
+  url: "http://bit.ly/m-tour-5p2p"
+  class: color-2
+
+- name: Offri un caffè ☕️
+  url: "http://bit.ly/m-offri-un-caffe"
+  class: color-3 dbox-donation-button
+
 #- name: Weddings
 #  url:  "http://weddings.5p2p.it/"
 #  class: color-1
 
-#- name: <strong>Novità!</strong> PARTE IL TOUR 🚀
-#  url: "tour"
+#- name: Libri
+#  url: "libri"
 #  class: color-2
 
-- name: Libri
-  url: "libri"
-  class: color-2
-
-- name: Chi siamo
-  url:  "chi-siamo"
-  class: color-3
-
-- name: Donazioni
-  url: "https://donorbox.org/collabora-con-noi?default_interval=m&amount=10"
-  class: color-4 dbox-donation-button
+  #- name: Chi siamo
+  #  url:  "chi-siamo"
+  #  class: color-3
 
   #- name: Donazioni
   #  url: "https://donorbox.org/collabora-con-noi"
