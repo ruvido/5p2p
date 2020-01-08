@@ -2,6 +2,7 @@
 title: Il regalo disatteso
 author: Alescanca
 image: "/uploads/WhatsApp Image 2019-12-24 at 07.43.01-1.jpeg"
+permalink: il-regalo-disatteso
 
 ---
 Sono due compleanni e due natali che chiedo come regalo un portafoglio. Sono due anni che ho la cerniera del portafoglio rotta e mi cascano tutte le monete, ma non ho avuto il tempo di comprarne uno altrettanto bello come quello che ho. Se lo ricevessi in regalo, sarebbe una gran bella cosa. Ma niente... anche questo Natale evidentemente non lo riceveró perché sotto l'albero ci sono due pacchetti con il mio nome ma sono troppo grandi per contenere un portafoglio. Uno è stretto e lungo e l'altro è il pacchetto piú grosso di tutti i regali (quello nella foto). Quindi, o ci sono cinquanta portafogli dentro, oppure anche quest'anno niente.
