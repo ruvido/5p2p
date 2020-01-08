@@ -33,7 +33,7 @@ Dio è pazzo per davvero, pazzo d'amore. Come ha potuto essere tanto smisurato d
 
 Dio segue strade diverse da quelle che vorremmo, ma **il Suo è un Amore che anticipa**, che Ama senza misura, che esagera sempre. Ovunque ti trovi, nella gioia o nel dolore, nella famiglia piú accogliente del mondo o a tavola con i parenti litigati da sopportare, sappi che non è sbagliato o giusto, ma solo **la tua occasione**, il tuo dono incomprensibile forse, ma di sicuro la storia in cui accogliere Dio, né piú e né meno.
 
-In fondo cucinare vegano, oltre ad essere un gesto d'amore verso Francesco che non puó mangiare tante cose, mi diverte e mi fa scoprire sapori nuovi che non immaginavo potessi fare proprio con gli stessi ingredienti che uso da anni. Anche quel libro di ricette che sembrava inutile e che snobbato per mesi, in realtá è per me l'invito a prendermi cura di mio marito con amore. È un regalo che mi ricorda che la mia felicitá sta nell'amare mio marito anche cucinando quella roba che alla fine, con il tempo, sto anche apprezzando.
+In fondo cucinare vegano, oltre ad essere un gesto d'amore verso Francesco che non puó mangiare tante cose, mi diverte e mi fa scoprire sapori nuovi che non immaginavo potessi fare proprio con gli stessi ingredienti che uso da anni. Anche quel libro di ricette che sembrava inutile e che ho snobbato per mesi, in realtá è per me l'invito a prendermi cura di mio marito con amore. È un regalo che mi ricorda che la mia felicitá sta nell'amare mio marito anche cucinando quella roba che alla fine, con il tempo, sto anche apprezzando.
 
 Buon Natale a tutti!
 
