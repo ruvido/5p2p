@@ -17,7 +17,7 @@ La nostra esperienza è un po' diversa. Io e Francesco ci siamo conosciuti alla 
 
 > Non preoccupatevi dunque dicendo: “Che cosa mangeremo? Che cosa berremo? Che cosa indosseremo?”. Di tutte queste cose vanno in cerca i pagani. Il Padre vostro celeste, infatti, sa che ne avete bisogno. Cercate invece, anzitutto, il regno di Dio e la sua giustizia, e tutte queste cose vi saranno date in aggiunta.<cite>Mt 6,31-33 </cite>
 
-Se l'obiettivo non è la volontá di Dio non si puó parlare di provvidenza. La provvidenza si scatena a dismisura solo quando abbiamo come massima prioritá realizzare il progetto di Dio. Solo quando le nostre migliori energie sono impegnate per _il regno di Dio e la Sua giustizia_ e non per tutto il resto, allora possiamo ben disporci ad accogliere la provvidenza. Per capire quale sia la Sua volontá non basta pensare che quello che vogliamo accada sia una cosa buona, ma bisogna fare un discernimento.
+Se l'obiettivo non è la volontá di Dio non si puó parlare di provvidenza. La provvidenza si scatena a dismisura solo quando abbiamo come massima prioritá realizzare il progetto di Dio. Solo quando le nostre migliori energie sono impegnate per _il regno di Dio e la Sua giustizia_ e non per tutto il resto, allora possiamo ben disporci ad accogliere la provvidenza. Per capire quale sia la Sua volontá non basta pensare che quello che vogliamo accada sia una cosa buona, ma bisogna fare un [discernimento](https://5p2p.it/2013/12/04/cosa-vuoi-che-io-faccia.html).
 
 Tu quando chiedi a Dio di intervenire con la Sua provvidenza? Per cosa chiedi il suo intervento? Ti stai seriamente chiedendo quale sia la Sua volontá? Oppure stai chiedendo a Dio di compiere ció che tu ritieni opportuno?
 
