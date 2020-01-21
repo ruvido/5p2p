@@ -13,7 +13,7 @@ La nostra esperienza è un po' diversa. Io e Francesco ci siamo conosciuti alla 
 
 ## ISTRUZIONI PER L'USO
 
-## 1.Avere come unico obiettivo il progetto di Dio
+### 1.Avere come unico obiettivo il progetto di Dio
 
 > Non preoccupatevi dunque dicendo: “Che cosa mangeremo? Che cosa berremo? Che cosa indosseremo?”. Di tutte queste cose vanno in cerca i pagani. Il Padre vostro celeste, infatti, sa che ne avete bisogno. Cercate invece, anzitutto, il regno di Dio e la sua giustizia, e tutte queste cose vi saranno date in aggiunta.<cite>Mt 6,31-33 </cite>
 
@@ -21,7 +21,7 @@ Se l'obiettivo non è la volontá di Dio non si puó parlare di provvidenza. La 
 
 Tu quando chiedi a Dio di intervenire con la Sua provvidenza? Per cosa chiedi il suo intervento? Ti stai seriamente chiedendo quale sia la Sua volontá? Oppure stai chiedendo a Dio di compiere ció che tu ritieni opportuno?
 
-## 2.Mettersi nella condizione di aver bisogno dell'intervento di Dio
+### 2.Mettersi nella condizione di aver bisogno dell'intervento di Dio
 
 > Beati i poveri in spirito, perché di essi è il regno dei cieli.
 
@@ -47,7 +47,7 @@ La nostra ricompensa arriva solo se ci facciamo _poveri, miti, se abbiamo fame d
 
 D'altronde se sono codardo o mi faccio i fatti miei dove potró mai sperimentare la provvidenza? Solo quando sono bisognoso dó a Dio la possibilitá di mostrarmi il Suo intervento nella mia vita. Il mio bisogno è lo spazio dell'intervento di Dio. Se ci pensi, quando un'amica ti chiede aiuto perché ha bisogno di una mano è l'unica vera occasione di poterle dire nei fatti che le voglio bene e puó contare sempre su di me. Ecco, Dio fa proprio la stessa cosa.
 
-## 3.La provvidenza è sempre in ritardo e sempre in tempo.
+### 3.La provvidenza è sempre in ritardo e sempre in tempo.
 
 Prima intraprendi la strada che hai capito che è volontá di Dio e poi la provvidenza ti accompagna, se no che fede è? Non esiste che arriva prima la provvidenza e poi ti lanci. Ci devo mettere la mia responsabilitá nelle scelte che faccio perché Dio non mi tratta come un burattino. Lui poi interverrá davanti al Mar Rosso che troveró davanti.
 
@@ -61,7 +61,7 @@ Io e Francesco abbiamo prima deciso la data del matrimonio e poi è arrivato il 
 
 La provvidenza arriva sempre in ritardo, mai all'inizio del cammino, ma non tarda mai perché è il luogo dove si incontrano le nostre forze con l'Amore di Dio per noi.
 
-## 4. Fai un'opera di caritá
+### 4. Fai un'opera di caritá
 
 > E sedutosi di fronte al tesoro, osservava come la folla gettava monete nel tesoro. E tanti ricchi ne gettavano molte. Ma venuta una povera vedova vi gettò due spiccioli, cioè un quattrino. Allora, chiamati a sé i discepoli, disse loro: «In verità vi dico: questa vedova ha gettato nel tesoro più di tutti gli altri. Poiché tutti hanno dato del loro superfluo, essa invece, nella sua povertà, vi ha messo tutto quello che aveva, tutto quanto aveva per vivere». <cite>Mc 12,41-44</cite>
 
@@ -75,7 +75,7 @@ La provvidenza a casa nostra si è sempre completamente scatenata a dismisura mi
 
 ## CHE COS'È?
 
-## É la carezza di Dio, la conferma che la strada intrapresa è giusta
+### É la carezza di Dio, la conferma che la strada intrapresa è giusta
 
 > Quando ebbe finito di parlare, disse a Simone: «Prendi il largo e calate le reti per la pesca». Simone rispose: «Maestro, abbiamo faticato tutta la notte e non abbiamo preso nulla; ma sulla tua parola getterò le reti». E avendolo fatto, presero una quantità enorme di pesci e le reti si rompevano. <cite>Lc 5,4-6</cite>
 
@@ -85,14 +85,13 @@ Avendo fatto la volontá di Dio i pesci non si contavano. Ecco la sproporzione d
 
 Non ci è mai capitato di fare una scelta secondo la volontá di Dio e non aver fatto esperienza forte della provvidenza. Ci penso e ci ripenso, ma devo dire che non ci è mai capitato, neanche una volta.
 
-## Ringraziamento
+### Ringraziamento
 
 [Dio mette i Suoi doni nei tuoi grazie](https://5p2p.it/la-preghiera-del-grazie). Non preoccupiamoci tanto di chiedere a Dio la Sua provvidenza, ma piuttosto affrettiamoci a ringraziarlo per quello che compierá. Dio ascolta sempre le nostre preghiere, quindi non affanniamoci a chiedere sempre la stessa cosa (per quanto l'insistenza della Cananea e la perseveranza sono cose lodevoli). Pensiamo piuttosto a come e dove troveremo tanto tempo per ringraziarLo adeguatamente.... questo è un vero problema: ci basterá una vita intera per ringraziare Dio per tutta la provvidenza che abbiamo sperimentato fino ad oggi?!
 
-## Per riassumere
+## PER RIASSUMERE
 
 La provvidenza è un gesto, una persona giusta al momento giusto, dei soldi necessari... Insomma quella cosa indispensabile ma impossibile con le nostre forze che é decisiva per poter compiere la volontà di Dio.
-
 
 - La provvidenza arriva solo se é volontà di Dio!!!
 - Si puó sperimentare solo se sono bisognoso
