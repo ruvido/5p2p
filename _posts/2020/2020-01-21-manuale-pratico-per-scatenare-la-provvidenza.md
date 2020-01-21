@@ -24,16 +24,23 @@ Tu quando chiedi a Dio di intervenire con la Sua provvidenza? Per cosa chiedi il
 ## 2.Mettersi nella condizione di aver bisogno dell'intervento di Dio
 
 > Beati i poveri in spirito, perché di essi è il regno dei cieli.
+
 > Beati quelli che sono nel pianto, perché saranno consolati.
+
 > Beati i miti, perché avranno in eredità la terra.
-> Beati quelli che hanno fame e sete della giustizia, perché saranno saziati.
+
+> Beati quelli che hanno fame e sete della giustizia, perché 
+saranno saziati.
+
 > Beati i misericordiosi, perché troveranno misericordia.
+
 > Beati i puri di cuore, perché vedranno Dio.
+
 > Beati gli operatori di pace, perché saranno chiamati figli di Dio.
+
 > Beati i perseguitati per la giustizia, perché di essi è il regno dei cieli.
-> Beati voi quando vi insulteranno, vi perseguiteranno e, mentendo,
-> diranno ogni sorta di male contro di voi per causa mia.
-> Rallegratevi ed esultate, perché grande è la vostra ricompensa nei cieli. <cite>Mt 5,3-12
+
+> Beati voi quando vi insulteranno, vi perseguiteranno e, mentendo, diranno ogni sorta di male contro di voi per causa mia. Rallegratevi ed esultate, perché grande è la vostra ricompensa nei cieli. <cite>Mt 5,3-12
 > </cite>
 
 La nostra ricompensa arriva solo se ci facciamo _poveri, miti, se abbiamo fame di giustizia_, ecc. Solo se arriviamo ad essere perseguitati per quanto teniamo a cuore il progetto di Dio allora sará nostro il regno dei cieli. Solo se arriviamo ad essere addirittura insultati a causa del Signore, allora avremo una ricompensa enorme. Insomma solo se mantengo saldo ad ogni costo l'obiettivo di cercare e di vivere il progetto di Dio su di me, a costo anche di diventare povero (vedi san Giuseppe Moscati o san Francesco) e di essere insultato, sperimenteró la provvidenza.
