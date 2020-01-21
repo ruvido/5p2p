@@ -85,11 +85,11 @@ Avendo fatto la volontá di Dio i pesci non si contavano. Ecco la sproporzione d
 
 Non ci è mai capitato di fare una scelta secondo la volontá di Dio e non aver fatto esperienza forte della provvidenza. Ci penso e ci ripenso, ma devo dire che non ci è mai capitato, neanche una volta.
 
-# Ringraziamento
+## Ringraziamento
 
 [Dio mette i Suoi doni nei tuoi grazie](https://5p2p.it/la-preghiera-del-grazie). Non preoccupiamoci tanto di chiedere a Dio la Sua provvidenza, ma piuttosto affrettiamoci a ringraziarlo per quello che compierá. Dio ascolta sempre le nostre preghiere, quindi non affanniamoci a chiedere sempre la stessa cosa (per quanto l'insistenza della Cananea e la perseveranza sono cose lodevoli). Pensiamo piuttosto a come e dove troveremo tanto tempo per ringraziarLo adeguatamente.... questo è un vero problema: ci basterá una vita intera per ringraziare Dio per tutta la provvidenza che abbiamo sperimentato fino ad oggi?!
 
-# Per riassumere
+## Per riassumere
 
 La provvidenza è un gesto, una persona giusta al momento giusto, dei soldi necessari... Insomma quella cosa indispensabile ma impossibile con le nostre forze che é decisiva per poter compiere la volontà di Dio.
 
