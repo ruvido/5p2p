@@ -93,8 +93,9 @@ Non ci è mai capitato di fare una scelta secondo la volontá di Dio e non aver 
 
 La provvidenza è un gesto, una persona giusta al momento giusto, dei soldi necessari... Insomma quella cosa indispensabile ma impossibile con le nostre forze che é decisiva per poter compiere la volontà di Dio.
 
-* La provvidenza arriva solo se é volontà di Dio!!!
-* Si puó sperimentare solo se sono bisognoso
-* Non arriva se sto fermo ma se faccio tutto ciò che è nelle mie capacità e attendo dal Signore ciò che per me é impossibile.
-* Dai tutto quello che hai come la vedova perché il Signore guarda il cuore e non resta fermo davanti a un gesto di caritá.
-* Preoccupati piú di tutto di ringraziare.
+
+- La provvidenza arriva solo se é volontà di Dio!!!
+- Si puó sperimentare solo se sono bisognoso
+- Non arriva se sto fermo ma se faccio tutto ciò che è nelle mie capacità e attendo dal Signore ciò che per me é impossibile.
+- Dai tutto quello che hai come la vedova perché il Signore guarda il cuore e non resta fermo davanti a un gesto di caritá.
+- Preoccupati piú di tutto di ringraziare.
