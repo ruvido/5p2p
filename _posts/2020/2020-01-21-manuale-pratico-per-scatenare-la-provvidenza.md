@@ -11,7 +11,7 @@ Su questo argomento la confusione è tanta. Si va dal razionalismo piú estremo 
 
 La nostra esperienza è un po' diversa. Io e Francesco ci siamo conosciuti alla marcia francescana dove si viveva di provvidenza, si camminava senza sapere bene quanti chilometri ci fossero da fare, cosa avremmo mangiato e dove avremmo dormito; ma poi questa esperienza è diventata il paradigma con cui viviamo la nostra vita. Ho pensato allora di scrivere questo piccolissimo manuale pratico, molto sintetico, ma efficace, semplificato in pochi punti.
 
-# ISTRUZIONI PER L'USO
+## ISTRUZIONI PER L'USO
 
 ## 1.Avere come unico obiettivo il progetto di Dio
 
@@ -73,7 +73,7 @@ Insomma, **quello che hai è semplicemente quello che hai dato con gli interessi
 
 La provvidenza a casa nostra si è sempre completamente scatenata a dismisura mille volte tanto. Non c'è paragone tra il dare e il ricevere in soldi, incontri, occasioni, tanto che adesso viviamo unicamente di provvidenza. La provvidenza è la nostra amica piú cara, compagna di tante avventure e intuizioni geniali. Lei ci accompagna nel cammino costantemente.
 
-# CHE COS'È?
+## CHE COS'È?
 
 ## É la carezza di Dio, la conferma che la strada intrapresa è giusta
 
