@@ -1,7 +1,7 @@
 ---
 title: Manuale pratico per scatenare la provvidenza
 author: Alescanca
-image: ''
+image: "/uploads/banca popolare del paradiso-01 (1).jpg"
 permalink: manuale-pratico-per-scatenare-la-provvidenza
 
 ---
@@ -67,7 +67,7 @@ La provvidenza a casa nostra si è sempre completamente scatenata a dismisura mi
 
 La provvidenza è la conferma che la strada intrepresa è giusta.
 
->«Maestro, abbiamo faticato tutta la notte e non abbiamo preso nulla; ma sulla tua parola getterò le reti». E avendolo fatto, presero una quantità enorme di pesci e le reti si rompevano. <cite>Lc 5,5-6</cite>
+>«Maestro, abbiamo faticato tutta la notte e non abbiamo preso nulla; ma sulla tua parola getterò le reti». E avendolo fatto, presero una quantità enorme di pesci e le reti si rompevano. <cite>Lc 5,5![](/uploads/banca popolare del paradiso-01 (1).jpg)-6</cite>
 
 Avendo fatto la volontá di Dio i pesci non si contavano. Ecco la sproporzione di Dio per noi. La misura dell'Amore che sperimentiamo quando facciamo la volontá di Dio anche se ci sembra una cosa strana e fuori da ogni logica (infatti lo è!).
 
