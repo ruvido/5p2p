@@ -5,7 +5,9 @@ image: ''
 permalink: la-felicita-senza-impegno
 
 ---
-Alzi la mano chi nella preghiera non chiede a Dio di risolvere istantaneamente ogni tipo di situazione. Alzi anche la mano chi non aspira ad una vita serena, tranquilla e priva di dolore. Tutti noi che abbiamo alzato la mano dobbiamo anche sapere che seguiamo il dio sbagliato perché il nostro Dio di lavoro fa il Padre e non è Mago Merlino.
+Alzi la mano chi nella preghiera non chiede a Dio di risolvere istantaneamente ogni tipo di situazione. Alzi anche la mano chi non aspira ad una vita serena, tranquilla e priva di dolore. 
+
+Tutti noi che abbiamo alzato la mano dobbiamo anche sapere che seguiamo il dio sbagliato perché il nostro Dio di lavoro fa il Padre e non è Mago Merlino.
 
 Mi rendo conto che in ogni mia preghiera c'è sempre la richiesta, di solito anche molto esplicita, che Dio cambi _come per magia_ quella difficoltá o la elimini come se fosse la realtá al risveglio da un brutto sogno. Insomma, **tutti vogliamo essere felici ma senza impegno**, senza sforzo, mentre facciamo tutti i fatti nostri (cose buone per caritá!) ma senza Dio. Le nostre preghiere, almeno la maggior parte delle mie, sono monologhi interminabili con suggerimenti a Dio nei minimi dettagli di come dovrebbe intervenire e risolvere i miei casini esistenziali e pratici.
 
