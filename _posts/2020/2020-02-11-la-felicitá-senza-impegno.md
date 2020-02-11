@@ -29,7 +29,7 @@ Cerchiamo la felicitá senza impegno. **Quella felicitá che arriva sul cavallo 
 
 Mi piace molto andare in montagna e, in generale, vivere immersa nella natura incontaminata ma non sarebbe lo stesso se lo facessi in auto. Ci sono posti spettacolari che si possono raggiungere facilmente con la macchina, ma la bellezza più grande in realtà è il cammino. Nonostante la fatica e le cadute, le sviste e le strade sbagliate intraprese, é il cammino stesso che ti fa già gustare la bellezza che cerchi.
 
-Vedo tantissime persone andare in pellegrinaggio a Santiago de Compostela. Certo, ci potrebbero arrivare con un comodo aereo o in treno. Spenderebbero anche meno! Ma tutti ci vanno a piedi, chilometro dopo chilometro. Ad ogni passo ci si nutre di quella bellezza per cui ci si era messo in cammino.
+Vedo tantissime persone andare in pellegrinaggio a Santiago de Compostela. Certo, ci potrebbero arrivare con un comodo aereo o in treno. Spenderebbero anche meno! Ma tutti ci vanno a piedi, chilometro dopo chilometro. Ad ogni passo ci si nutre di quella bellezza per cui ci si era messi in cammino.
 
 ## La felicitá dipende da quanto vivi il progetto di Dio
 
