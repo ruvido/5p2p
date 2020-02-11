@@ -1,7 +1,7 @@
 ---
 title: La felicitá senza impegno
 author: Alescanca
-image: ''
+image: /img/posts/senza-impegno-mini.jpg
 permalink: la-felicita-senza-impegno
 
 ---
