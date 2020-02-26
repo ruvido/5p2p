@@ -20,7 +20,7 @@ E se stessimo toppando tutto alla grande? Forse anche a te ti è capitato di pen
 
 Credo che prima di partire sullo start della giornata dobbiamo pensare a fermarci in realtá. Lo so che sembra una contraddizione in termini **fermarsi per partire**, ma forse non è proprio una cavolata. [La preghiera](https://5p2p.it/2015/08/07/La-preghiera-quotidiana.html) in fondo è questo, semplicemente questo: fermarsi per partire, lasciarsi amare per partire, caricarsi per partire.
 
-**La preghiera non è l'ennesima cosa da fare** e per cui di sicuro il tempo non c'è perché la lista di oggi è giá esaurita come esaurita sono giá io alle sette del mattino al solo pensiero di tutte le cose che devo riuscire a fare e che giá so che entro le dieci di stasera è impossibile che faró.** La preghiera è il mio power bank**. È la sorgente dove attingere, se no a cosa altro servirebbe?!
+**La preghiera non è l'ennesima cosa da fare** e per cui di sicuro il tempo non c'è perché la lista di oggi è giá esaurita come esaurita sono giá io alle sette del mattino al solo pensiero di tutte le cose che devo riuscire a fare e che giá so che entro le dieci di stasera è impossibile che faró.**La preghiera è il mio power bank**. È la sorgente dove attingere, se no a cosa altro servirebbe?!
 
 ## L'Amore è ordinato
 
