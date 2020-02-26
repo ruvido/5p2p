@@ -5,7 +5,7 @@ image: "/uploads/non ho tempo-01 (1).jpg"
 permalink: non-ho-tempo-per-pregare
 
 ---
-<img src="/uploads/non ho tempo-01 (1).jpg">Il tempo? Per pregare? Impossibile! Con tutte le cose che ho da fare… Ma non basta la messa la domenica?
+Il tempo? Per pregare? Impossibile! Con tutte le cose che ho da fare… Ma non basta la messa la domenica?
 
 Beh, con quattro figli e la vita che facciamo, il tempo è la cosa che piú manca. Mi piacerebbe poterlo comprare tra gli scaffali della pasta al supermercato, ma purtroppo la tecnologia e il business si concentrano su altri prodotti. Il tempo dovrebbe essere considerato un bene di prima necessitá insieme al pane e alla nutella, o almeno patrimonio dell'umanitá.
 
