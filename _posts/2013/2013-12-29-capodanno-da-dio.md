@@ -4,7 +4,7 @@ author: Alescanca
 image: /img/posts/capodanno.jpg
 redirect_from: /2013/12/29/capodanno-da-dio.html
 permalink: capodanno-da-dio
-date: 2019-12-27
+date: 2020-12-31
 ---
 
 
