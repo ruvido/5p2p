@@ -3,7 +3,7 @@ title: La morte è morta!
 author: Ruvido
 image: "/uploads/la-morte-e-morta.jpg"
 permalink: la-morta-e-morta
-date: 2019-04-17 17:50:04 +0200
+date: 2021-04-04
 
 ---
 La settimana santa è il paradigma della nostra vita. Oggi cerchiamo di capire qualcosa di fondamentale, qualcosa che va al cuore della nostra vita, l'ingrediente segreto per mirare alto e smettere di vivere di compromessi.
