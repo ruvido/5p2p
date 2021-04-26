@@ -47,7 +47,7 @@ Ad oggi 5pani2pesci è seguito da migliaia di giovani ogni mese. Il nostro augur
 
 ## Vuoi aiutarci?
 
-Puoi sostenere 5pani2pesci [facendo una donazione]({{site.baseurl}}/donazioni) o acquistando uno di questi libri che abbiamo scelto per te seguendo i link qui sotto (riceveremo una piccola quota da Amazon senza nessun prezzo aggiuntivo per te!) Sono letture che sono state fondamentali per il nostro cammino e siamo sicuri che possano aiuatere anche te a crescere nell'amore.
+Puoi sostenere 5pani2pesci [facendo una donazione](https://bit.ly/offri-un-caffe) o acquistando uno di questi libri che abbiamo scelto per te seguendo i link qui sotto (riceveremo una piccola quota da Amazon senza nessun prezzo aggiuntivo per te!) Sono letture che sono state fondamentali per il nostro cammino e siamo sicuri che possano aiuatere anche te a crescere nell'amore.
 
 - [I 5 linguaggi dell'amore](http://www.amazon.it/gp/product/8801023723/ref=as_li_ss_tl?ie=UTF8&camp=3370&creative=24114&creativeASIN=8801023723&linkCode=as2&tag=5pani2pesci-21)
 - [Nostro fratello di Assisi](http://www.amazon.it/gp/product/8825026625/ref=as_li_ss_tl?ie=UTF8&camp=3370&creative=24114&creativeASIN=8825026625&linkCode=as2&tag=5pani2pesci-21)
