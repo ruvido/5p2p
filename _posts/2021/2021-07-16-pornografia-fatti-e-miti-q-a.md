@@ -17,7 +17,7 @@ La pornografia crea dipendenza perché la compensazione per fare effetto ha biso
 
 ## ☀️ **INDICE :: Domande e Risposte**
 
-- [*Vedevo la pornografia per “capire” come si faceva l’amore, ma poi mi faceva vomitare.*](#-vedevo-la-pornografia-per--capire--come-si-faceva-l-amore--ma-poi-mi-faceva-vomitare-)
+- [Vedevo la pornografia per “capire” come si faceva l’amore, ma poi mi faceva vomitare.](#vedevo-la-pornografia-per--capire--come-si-faceva-l-amore--ma-poi-mi-faceva-vomitare)
 - [È una questione che riguarda solo gli uomini](#--una-questione-che-riguarda-solo-gli-uomini)
 - [*Guardo pornografia, perché mi sento sola, ma poi mi sento sporca e vuota.*](#-guardo-pornografia--perch--mi-sento-sola--ma-poi-mi-sento-sporca-e-vuota-)
 - [*Essere single e cercare intimità, a volte le due cose mi portano a cadere.*](#-essere-single-e-cercare-intimit---a-volte-le-due-cose-mi-portano-a-cadere-)
@@ -58,7 +58,7 @@ La pornografia crea dipendenza perché la compensazione per fare effetto ha biso
 - [*Quando dici di lavorarci in concreto, che bisogna fare? Parlare?*](#-quando-dici-di-lavorarci-in-concreto--che-bisogna-fare--parlare--)
 - [*Se il tuo partner nega che sia dannosa, ma nega anche di farne uso dicendo che sei pesante?*](#-se-il-tuo-partner-nega-che-sia-dannosa--ma-nega-anche-di-farne-uso-dicendo-che-sei-pesante--)
 
-### *Vedevo la pornografia per “capire” come si faceva l’amore, ma poi mi faceva vomitare.*
+### Vedevo la pornografia per “capire” come si faceva l’amore, ma poi mi faceva vomitare.
 
 Per fare bene l’amore con il tuo uomo non c’è bisogno di guardare pornografia, se guardi pornografia di sicuro lo farai male. Devi imparare ad amarti tu per essere un dono per l’altro. Il vero piacere erotico emerge da una grande intesa basata su una intimità profonda. Funziona alla grande! (ascolta [questo dialogo](https://youtu.be/MJWBUm605UE) tra Alessandra e la sessuologa Nicoletta Musso per approfondire)
 
