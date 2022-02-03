@@ -9,14 +9,16 @@ layout: default
   console.log(now)
   console.log(Date())
   betaLaunchDate = Date.now('2022-02-07')
-  if (now>betaLaunchDate) {
+  goRedirect = now>betaLaunchDate
+  console.log(goRedirect)
+  if (goRedirect) {
     window.onload = function() {
       location.href = "https://beta.5p2p.it";
     }
   }
 </script>
 
-<small> v 0.99</small>
+<small> v 0.9</small>
 <!-- ====================================== -->
 {% assign featured = true %}
 <!-- <script>console.log('>'+'{{featured}}')</script> -->
