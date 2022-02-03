@@ -5,7 +5,11 @@ layout: default
 
 
 <script>
-  if (0) {
+  let now = Date.now()
+  console.log(now)
+  console.log(Date())
+  betaLaunchDate = Date.now('2022-02-07')
+  if (now>betaLaunchDate) {
     window.onload = function() {
       location.href = "https://beta.5p2p.it";
     }
