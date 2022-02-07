@@ -7,7 +7,7 @@ layout: default
 <script>
   let now = Date.now()
   console.log(Date())
-  let betaLaunchDate = Date.now('2022-02-06')
+  let betaLaunchDate = new Date('2022-02-07').getTime()
   console.log(now)
   console.log(betaLaunchDate)
   let goRedirect = now>betaLaunchDate
